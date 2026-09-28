@@ -5,1207 +5,1207 @@
 <h2>一、文化娱乐新闻精选</h2>
 <h3>2011年新一代设计展 惊爆主视觉抄袭事件</h3>
 <p>然而，前几日却惊爆主视觉抄袭外国Lomography网站图样事件，让指导的经济部工业局，与主办的台湾创意设计中心高度震撼。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/98227135.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/98227135.shtml</code></p>
 
 <h3>地方人士热心捐赠 善化图书馆成立地方文献专区</h3>
 <p>由于蒙获地方上热心文史的耆老们捐赠文物，台南市的善化图书馆将成立地方文献专区。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/14151803.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/14151803.shtml</code></p>
 
 <h3>兰桂坊嘉年华周末狂欢 盛志文：望破12.5万人</h3>
 <p>一年一度的兰桂坊嘉年华今日傍晚于香港中环兰桂坊附近的和安里露天剧场举行「开幕之夜」，现场邀请得香港歌手容祖儿、钟舒漫、Sun Boy&#x27;z作嘉宾，同时请来森巴女郎热舞、小丑杂耍表演、非洲鼓乐演奏、巨型高跷等助庆。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/64996746.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/64996746.shtml</code></p>
 
 <h3>YouTube与米高梅合作 将提供线上观看完整电影服务</h3>
 <p>以往在YouTube，使用者大多看到的短片，会以电影的精华或宣传片为主，但YouTube美国总部在美国时间9日，正式和知名电影公司米高梅合作，宣布将提供米高梅出品的完整电影，让使用者线上观看。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/27205150.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/27205150.shtml</code></p>
 
 <h3>沃灵顿·哈德林在2025年皇后区世界电影节上获得表彰</h3>
 <p>周三，数十位电影制作人于皇后区议会大厅聚集，参加2025年皇后区世界电影节发布会。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/37531733.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/37531733.shtml</code></p>
 
 <h3>日本漫画家藤子不二雄Ⓐ逝世 享年88岁</h3>
 <p>据报，日本著名漫画家、漫画组合藤子不二雄成员之一藤子不二雄Ⓐ于4月7日上午在神奈川县川崎市的家中逝世，享年88岁。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/66807039.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/66807039.shtml</code></p>
 
 <h3>2007维基媒体国际会议 盛大开幕</h3>
 <p>第三届维基媒体国际会议，今日（8月3日）上午九时准时在台北市的救国团剑潭青年活动中心登场，来自98国，包含各领域的网路高手，汇聚台北市，参与这项重大的盛会。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/20433970.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/20433970.shtml</code></p>
 
 <h3>谷阿莫参加时代力量决策委员选举 其中国大陆社交媒体账号被封</h3>
 <p>台湾知名YouTuber谷阿莫参加时代力量决策委员选举，消息公布后、他的中国社交媒体账户，包括微博和B站，都被封禁。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/91699923.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/91699923.shtml</code></p>
 
 <h3>网络团体所谓“满洲流亡政府”总理梅凤杰的访谈资料</h3>
 <p>梅凤杰曾任反共媒体新唐人电视台《独立评论》节目主持人和流亡政党“中国社会民主党”秘书长等。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/69641386.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/69641386.shtml</code></p>
 
 <h3>日本拟撤文件盖印核实身份的百年传统</h3>
 <p>日本政府正在考虑取消民众在正式文件上盖印核实身份的规定，名为「脱ハンコ」和「押印廃止」运动。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/15011073.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/15011073.shtml</code></p>
 
 <h3>星光三班尘埃落定徐佳莹凭自创曲夺冠</h3>
 <p>台湾电视歌唱选秀节目超级星光大道第三届尘埃落定，从2月的百人初选到昨晚(8月15日)的决赛，经过了漫长的比赛过程后，最后由徐佳莹以总平均分21.47夺冠，获得250万元奖金及价值约50万的汽车。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/22573529.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/22573529.shtml</code></p>
 
 <h3>香港艺人罗乐林一天内死五次</h3>
 <p>香港无线电视的「甘草」演员罗乐林，在四月六日至七日期间二十四小时内播映的无线剧集中连死五次，创下香港电视史纪录。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/77471410.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/77471410.shtml</code></p>
 
 <h3>港星吴孟达病逝 一文回顾其生平</h3>
 <p>香港资深影视演员吴孟达罹患肝癌晚期，今日下午五时在香港仁安医院病逝，享寿70岁。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/88801395.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/88801395.shtml</code></p>
 
 <h3>香港资深演员廖启智逝世 终年67岁</h3>
 <p>香港资深演员廖启智昨晚因病逝世，享年67岁。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/59638246.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/59638246.shtml</code></p>
 
 <h3>康文署重开康乐设施</h3>
 <p>康乐及文化事务署（康文署）今日（5月10日）宣布，鉴于2019冠状病毒病的最新情况，康乐文化署的更多康乐及文化场地将于5月21日重新开放。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/47517919.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/47517919.shtml</code></p>
 
 <h3>台中市政府于今年6/4-7/3举办「书艺。美蒃」草悟道对称艺术联展</h3>
 <p>『草悟道』是位于台中市中心一连串的绿地公园，由国立自然科学博物馆开始延伸，经市民广场、国立台湾美术馆，一直到美术园道。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/96651908.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/96651908.shtml</code></p>
 
 <h3>香港跑手苏桦伟于残疾奥运会夺金</h3>
 <p>有「神奇小子」之称的香港残疾运动员苏桦伟于北京残疾奥运会200米田径，以破由他所保持的世界纪录成绩24秒6，力压乌克兰选手帕夫里克和中国的东冕蝉联金牌。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/34407056.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/34407056.shtml</code></p>
 
 <h3>第十届香港动漫节结束入场人数破记录</h3>
 <p>第十届香港动漫电玩节(动漫节)今日(8月5日)结束，据主办单位称，截至今日下午5时，累积入场人数约有61万人次，超过去年的56万人次。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/17112939.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/17112939.shtml</code></p>
 
 <h3>台湾「百年教育展」明天开始</h3>
 <p>为庆祝中华民国建国百年，中华民国教育部自明天起到2月10日在台北国立国父纪念馆、台中国立自然科学博物馆、高雄国立科学工艺博物馆与花莲县文化局园区分为北、中、南、东四区举办百年学校展，介绍目前台湾地区建校百年以上的280所学校。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/19733322.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/19733322.shtml</code></p>
 
 <h3>俄罗斯网球选手舒拉宝娃因伤退出京奥</h3>
 <p>俄罗斯网球选手，世界排名第三的-{zh-hans:莎拉波娃; zh-hant:莎拉波娃; zh-hk:舒拉宝娃;}-，于其官方网站宣布，她因肩伤将缺席北京奥运会。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/88311544.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/88311544.shtml</code></p>
 
 <h3>东京奥运会开幕式遭到差评</h3>
 <p>2020年东京奥运会开幕式被指遭到日本国内外众多观众的差评。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/11995704.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/11995704.shtml</code></p>
 
 <h3>酷文话百科公布十大网路金句 并展开次期目标</h3>
 <p>自9月28日起正式启动并进行网路金句投稿的酷文话百科网站，在经过10月14日起，近两周的票选后，正式宣布十大网路名句，而在投票期间，吸引64国近万名的网友进行票选，甚至也有海外华人参与此网站的征选活动，最终，从电玩与漫画界衍伸出的名言「马中赤兔，人中拉拉」成为最受全球网友欢迎的网路名句。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/21940420.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/21940420.shtml</code></p>
 
 <h3>世界遗产日本醍醐寺失火</h3>
 <p>位于日本京都伏见区的世界文化遗产醍醐寺于23日晚至24日凌晨发生火灾，寺内有一千多年历史的观音堂被完全烧毁，估计火灾是由于雷殛引发。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/38618904.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/38618904.shtml</code></p>
 
 <h3>大陆媒体重返台湾</h3>
 <p>除恢复两家官方媒体在台驻点外，中国新闻局也打算放宽中国大陆演员和歌星到台湾表演的某些限制。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/89265836.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/89265836.shtml</code></p>
 
 <h3>多伦多Comicon 2019以名人，创意和角色扮演欢迎粉丝</h3>
 <p>多伦多Comicon 2019上周末回到家乡，成为加拿大最大的流行文化活动之一。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/50146706.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/50146706.shtml</code></p>
 
 <h3>2008新一代设计展 展形象 秀创意 与国际接轨</h3>
 <p>堪称「全球最大型学生创意作品展」，也是获得国际工业设计社团协会认可的大型设计会展「第27届新一代设计展」，今（15）日在台北世贸中心开幕，除了地主台湾48校87系，展现平面、立体、虚拟等多种不同型式的设计成果，今年也有美、英、义、荷、纽、澳等国，20个国外设计相关院校单位，来台参展，展示国际设计产业的成果。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/88178837.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/88178837.shtml</code></p>
 
 <h3>艾未未纪录片威尼斯电影节首映 讲述难民故事</h3>
 <p>中国艺术家艾未未的纪录片 《人流》 （Human Flow）9月1号在威尼斯国际影节首映，角逐最高奖项“金狮奖”。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/98913244.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/98913244.shtml</code></p>
 
 <h3>维基年会在台北，中华电信签约记者会</h3>
 <p>今天（6月22日）维基会议筹备团队与当地协办的数位文化协会和中央研究院，一同与中华电信举行签约记者会，现场吸引数十多家媒体前来。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/24391538.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/24391538.shtml</code></p>
 
 <h3>习近平总书记:党和政府主办的媒体必须姓党</h3>
 <p>习近平强调：「党的新闻舆论工作坚持党性原则，最根本的是坚持党对新闻舆论工作的领导，党和政府主办的媒体是党和政府的宣传阵地，必须姓党。」<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/88064758.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/88064758.shtml</code></p>
 
 <h3>北京奥组委公布奥运场馆观赛规则</h3>
 <p>北京奥组委昨日(7月14日)公布「奥运场馆观赛规则」，规则巨细靡遗，例如明文严止观看奥运时「裸奔」、也禁止于场内集体穿戴相同或类似服装、严格禁携带旗帜、不能出现政治或宗教活动。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/18388201.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/18388201.shtml</code></p>
 
 <h3>亚洲电视夺1号频道 将改变香港惯性选台习惯</h3>
 <p>这将打破过去40年无线电视为1号台的惯性选台习惯。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/90243761.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/90243761.shtml</code></p>
 
 <h3>奥运前夕中国解禁多个网站</h3>
 <p>早前有记者投诉北京奥运主新闻中心多个网站无法连上，今日有多个网站解禁，包括国际特赦、无国界记者、德国之声、英国广播公司（BBC）、中文维基百科等等。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/20838219.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/20838219.shtml</code></p>
 
 <h3>2010年资讯月 官方、业者接驳车 另类车拚</h3>
 <p>一般而言，展览接驳车通常都会由主办单位提供，但是在今年的资讯月，艾望数位与奥图码，比照往年台北电玩展的模式，向大都会客运买下车身广告，并承租接驳车，进行产品宣传，一样吸引不少参观者的目光，和负责官方接驳车营运的大南汽车相比，虽仅有一台进行营运，却仍不遑多让，也达到了聚焦的效果。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/11810596.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/11810596.shtml</code></p>
 
 <h3>俄国旅行家摄影展《中世纪克萨》在克里米亚开幕</h3>
 <p>2025年9月30日，辛菲罗波尔艺术博物馆举办了为期一天的虚拟（数字）摄影展“中世纪克萨”，由俄罗斯摄影师/摄影艺术家维克多•平丘克在上述的120天旅行中筹备。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/95896193.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/95896193.shtml</code></p>
 
 <h3>《黑豹》男主查域·保斯曼逝世 享年43岁</h3>
 <p>美国演员查域·保斯曼（英语：Chadwick Aaron Boseman）因结肠癌在洛杉矶去世，享年43岁。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/80200501.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/80200501.shtml</code></p>
 
 <h3>香港前中区警署活化 拟减规模并不作咨询</h3>
 <p>香港前中区警署建筑群的活化计划，早前香港赛马会建议增建的「竹棚」瞭望台备受强烈反对。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/38491874.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/38491874.shtml</code></p>
 
 <h3>2010年台北国际书展 「艺」鸣惊人 追星风潮浮现</h3>
 <p>2010年台北国际书展，在今（1）日结束了六日下来的展示，各业者多半对于活动的分配与营收成果表示满意，演艺人员的现身，带动了主展馆活动的气势，另一股追星风潮也在展场浮现。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/66611736.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/66611736.shtml</code></p>
 
 <h3>奥运火炬新疆传递</h3>
 <p>北京奥运火炬传递于17日开始为期三天的传递路程。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/28765418.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/28765418.shtml</code></p>
 
 <h3>台北世贸三会展 下周车拼迎新机</h3>
 <p>继台北国际书展之后，下周五（18日）起一连五日，台北世贸中心将迎接三大会展，吸引消费者前往一观。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/93266557.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/93266557.shtml</code></p>
 
 <h3>第18届金曲奖颁奖典礼于台北小巨蛋举行</h3>
 <p>第18届金曲奖流行音乐颁奖典于于2007年6月16日晚间在台北小巨蛋举行，今年的主题为Look@Mii，Mii意即「Music is International」，由东风卫视举办，Im TV作网路直播。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/79075860.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/79075860.shtml</code></p>
 
 <h3>浙江大学梵音话剧社在宁波诺丁汉大学上演《称心如意》</h3>
 <p>浙江大学梵音话剧社于当日晚6：30分在宁波诺丁汉大学报告厅上演了由杨绛创作的轻喜剧《称心如意》，演出进行顺利。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/74660838.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/74660838.shtml</code></p>
 
 <h3>克里米亚的俄罗斯艺术之夜：“罗马-腓尼基建筑的独特典范”摄影展</h3>
 <p>恰逢一年一度的文化教育活动“艺术之夜”，这位俄罗斯旅行家兼文化名人的最新摄影展向辛菲罗波尔居民展示了现今突尼斯境内保存完好的古代城市遗址：迦太基安东尼浴场、埃尔杰姆圆形剧场、马赛克城市奥德纳（乌蒂纳）、现斯贝特拉附近的苏费图拉遗址，以及坐落在山上的风景如画沙格镇。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/30668222.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/30668222.shtml</code></p>
 
 <h3>本笃十六世首次发表复活节致词</h3>
 <p>天主教教宗本笃十六世16日当地时间上午10点半在圣伯多禄广场主持了他担任教宗来的第一个复活节弥撒。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/32244185.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/32244185.shtml</code></p>
 
 <h3>中天新闻台不获续牌 下月将中止广播</h3>
 <p>在台湾，被指「亲共」的中天新闻台不获续牌，下月将中止电视广播。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/69596255.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/69596255.shtml</code></p>
 
 <h3>美国演奏家迪克和德雷瑟在弗里德曼画廊重聚</h3>
 <p>在11月21日星期五，长笛演奏家罗伯特·迪克和低音提琴演奏家马克·德雷瑟在纽约市的弗里德曼画廊重聚进行了一场演出。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/27132903.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/27132903.shtml</code></p>
 
 <h3>光华数位新天地 台湾登场 誓言成为秋叶原第二</h3>
 <p>这个集合「西宁电子商场」与「光华商场」的复合式商圈，汇聚了资通、电子零组件产业的精华，以六层楼建筑的新形象，要向消费者宣示─「光华数位新天地，成为秋叶原第二」的无限可能。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/93210187.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/93210187.shtml</code></p>
 
 <h3>日本影星绪形拳病逝</h3>
 <p>曾演出过包括脍炙人口的《楢山节考》、《火宅之人》，以及港产片《孔雀王子》等250部影视作品的日本演技派性格演员绪形拳(-{おがた けん}-)，前晚病逝，终年71岁。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/89665532.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/89665532.shtml</code></p>
 
 <h3>「红线」惹议：香港舞台剧奖颁奖礼风波</h3>
 <p>艺发局指活动内容直接或间接对艺发局声誉造成「损害或不利影响」，由于「竞争激烈」及「资源有限」，今年的颁奖典礼未能提供资助，决定不再资助香港戏剧协会举办下届舞台剧奖。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/83097044.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/83097044.shtml</code></p>
 
 <h3>黄河、高慧君新科金钟奖影帝影后</h3>
 <p>本届的新科金钟影帝、影后，是由参与《危险心灵》的黄河和《大爱剧场－美丽晨曦》的高慧君夺得。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/84102664.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/84102664.shtml</code></p>
 
 <h3>背着破旧的背包，带着笔记本环游世界</h3>
 <p>2026年1月17日，莫斯科42号图书馆举办了一场创意之夜活动，邀请了俄罗斯探险家和旅行家维克托•平丘克 出席。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/55540947.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/55540947.shtml</code></p>
 
 <h3>台艺人陷表态「统一」漩涡</h3>
 <p>赖清德就职后，逾30位台湾艺人在中国网络表态支持统一。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/12591587.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/12591587.shtml</code></p>
 
 <h3>金钟奖综艺类入围减少或从缺，凸显困境</h3>
 <p>第55届电视金钟奖公布入围名单，综艺类两大项目，「益智及实境节目奖」及「综艺节目主持人奖项」，入围数从往年5名减少为4名，评审委员会主任委员瞿友宁说：「少掉的那一个名额，就是从缺」，表示希望借由名单凸显节目困境。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/72106544.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/72106544.shtml</code></p>
 
 <h3>十五年经典剧集《ER》谢幕</h3>
 <p>NBC为了让使剧集保持新鲜感，换了一批又一批的主角，最终使电视剧的收视率越来越低，观众反而又更加怀念最先几季的那几位经典的主角。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/84323655.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/84323655.shtml</code></p>
 
 <h3>《蝴蝶君》于宁波诺丁汉大学上演</h3>
 <p>本周二与周三晚，在宁波诺丁汉大学报告厅，由该校戏剧社编排的戏剧《蝴蝶君》顺利上演。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/28324075.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/28324075.shtml</code></p>
 
 <h3>香港高院拒批《愿荣光》临时禁制令</h3>
 <p>当地时间7月28日，香港高等法院法官陈健强在听取律政司与法庭之友的陈辞后，以书面形式宣布，拒绝向律政司批出《愿荣光归香港》歌曲之临时禁制令。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/90746873.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/90746873.shtml</code></p>
 
 <h3>台湾舞蹈家罗曼菲病逝</h3>
 <p>台湾知名舞蹈家罗曼菲罹患肺腺癌长达四年余，因癌细胞转移脑部，于24日凌晨4时30分病逝于台湾台北市和信医院，享年51岁。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/91976733.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/91976733.shtml</code></p>
 
 <h3>中国女网红实测在香港只讲普通话「受到冷待歧视」 被指挑矛盾</h3>
 <p>一名中国女网红博主近日上传了旅游影片，宣称在香港只讲普通话「受到冷待歧视」。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/92721643.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/92721643.shtml</code></p>
 
 <h3>深圳无阻变装皇后演出 但澳门叫停</h3>
 <p>澳门「城市艺穗节」活动中原定节目《造美之城》，因内容涉及「变装皇后」元素而遭澳门文化局下架并要求修改，称因「内容有出入」，同样节目在深圳三场演出中都未有任何修改要求，引发监制质疑。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/99250637.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/99250637.shtml</code></p>
 
 <h3>藏人导演万玛才旦逝世 享年53岁</h3>
 <p>知名藏人导演、作家万玛才旦因病逝世，享年53岁。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/47076395.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/47076395.shtml</code></p>
 
 <h3>出版设计再创新 2007金蝶奖揭晓</h3>
 <p>金蝶奖堪称是台湾出版设计的一项至高荣誉，主要是鼓励出版业界对于书籍之封面、内容进行特殊与创新的设计，进而进军国际出版市场，并刺激亚洲地区的出版新观念。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/39322979.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/39322979.shtml</code></p>
 
 <h2>二、文化娱乐新闻精选</h2>
 <h3>赵婷《浪迹天地》夺奥斯卡三大奖项</h3>
 <p>《浪迹天地》横扫金球奖和英国电影学院奖后，在奥斯卡颁奖典礼上获最佳电影奖。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/18790766.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/18790766.shtml</code></p>
 
 <h3>农历新年：韩国教授指Lunar New Year属正确名称 并非Chinese New Year</h3>
 <p>随着全球华人欢度春节时，韩国一名大学教授发起了一项运动，将农历新年的英文名「正名」，从「Chinese New Year」改为「Lunar New Year」，此举在中国网民中引发了争议。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/11955057.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/11955057.shtml</code></p>
 
 <h3>龙年译争：中国官媒推Loong文化正名</h3>
 <p>中国官媒近期开始于农历新年相关活动及报道中，将「龙」译为「loong」，以求文化上的「正名」。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/93420831.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/93420831.shtml</code></p>
 
 <h3>2008台北国际书展 周日骤雨 打乱整体交通形象</h3>
 <p>2008台北国际书展日前甫落幕，除了参观人潮的涌进与读书风气的回温，世贸周边的整体交通，倘若没有周日的一场骤雨，将有可能是历年世贸大型展览进行以来，交通流畅度较佳的一次。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/57316278.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/57316278.shtml</code></p>
 
 <h3>电话卡限3张+藏卡刑事化 何君尧质疑：内地有二奶三奶香港有女友 藏卡就要负刑责？</h3>
 <p>【电话卡实名制再收紧】立法会资讯科技及广播事务委员会昨（14）日就政府收紧电话卡实名制建议展开激辩，建制派议员们连番「开炮」——何君尧更狠批将藏多张他人卡刑事化「太过火」，「这又不是藏毒，只不过是藏卡而已（又不是藏粉，只是藏卡啫）」。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/95376647.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/95376647.shtml</code></p>
 
 <h3>中华人民共和国国徽设计者之一周令钊逝世，享年104岁</h3>
 <p>据报导，中央美术学院教授周令钊在北京逝世，享年104岁。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/26303496.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/26303496.shtml</code></p>
 
 <h3>韩国图书文化展正于台湾中山大学图书馆举行</h3>
 <p>即日起于台湾高雄市的中山大学图书馆三楼举办第一届中山大学韩国图书文化展，现场将展示约千册古今各领域的韩文图书与介绍韩国文化的图片。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/52965294.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/52965294.shtml</code></p>
 
 <h3>书法家欧阳中石去世</h3>
 <p>位于中国北京的首都师范大学于11月5日发布讣告称，著名学者、教育家、书法家，首师大中国书法文化研究院名誉院长欧阳中石因病医治无效，于11月5日3时18分在北京逝世，享年93岁。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/40910348.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/40910348.shtml</code></p>
 
 <h3>俄旅行家拆解流浪旅行跨洲预算 露宿警局墓地心法</h3>
 <p>2025年9月15日，克里米亚环球流浪旅行专家维克多·平丘克，应邀出席于科克捷别利「沃洛希宁故居博物馆」举办的第23届国际科学创意研讨会「沃洛希宁九月」，并主持一场主题为《半生在路上》的大师课，深度讲解长距离跨洲预算旅行的理论与实践，课程名称虽带比喻色彩，却与其旅行理念高度契合。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/75110219.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/75110219.shtml</code></p>
 
 <h3>奥委会不满中国把奥运政治化</h3>
 <p>他说，中国的立场是坚决反对把奥运政治化。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/26475277.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/26475277.shtml</code></p>
 
 <h3>安徽黄山暴雨倾盆，屯溪镇海桥被冲毁，歙县高考语数两科推迟</h3>
 <p>7月7日9时50分左右，位于该市屯溪区的全国重点文物保护单位镇海桥被持续暴雨引发的洪水冲毁。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/69498512.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/69498512.shtml</code></p>
 
 <h3>2007资讯月 影艺界人士参与厂商活动 带动参观人潮</h3>
 <p>下周，金马奖即将公布得奖艺人，而杨丞琳、林依晨、黑涩会美眉的成员，也将出席厂商活动，因此也会让单纯的资讯月，间接成为艺人拉抬知名度的最有利场合，进而带动参观的人潮。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/37195155.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/37195155.shtml</code></p>
 
 <h3>王志安被台湾驱逐出境 曾批民进党造势用残障煽情</h3>
 <p>前央视记者王志安在台湾脱口秀节目中，批评台湾造势晚会的舞台像演唱会现场，民进党竞选造势利用残障人煽情。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/90179074.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/90179074.shtml</code></p>
 
 <h3>睽违11年 Saab Performace Show再度来台</h3>
 <p>Saab Performace Show(Saab性能表演)在台湾龙潭TIS赛车场于9/30、10/01下午两点各举行了一场，此次的Saab Performace Show距上次虽已有11年之久，但民众的热情依然不减，在这两天中，龙潭TIS挤进了上千名的人潮，甚至有民众希望在好的看台区观赏此次的表演，在当天早上九点便已入场等待，更有民众特地由南部北上参加此次的活动。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/80690664.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/80690664.shtml</code></p>
 
 <h3>战火旁的克里米亚庆祝艺术之夜，连线艺术家看看活动情况</h3>
 <p>记者连线了正在克里米亚办展的旅行家维克托·平丘克，问问他俄乌冲突背景下活动与观众的情况。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/71609726.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/71609726.shtml</code></p>
 
 <h3>香港报章风月版 被裁定为非不雅</h3>
 <p>自从《中大学生报》引发情色版风波后，香港影视及娱乐事务管理处（影视处）收到超过一百宗针对《苹果日报》、《太阳报》及《东方日报》其中5份风月版的投诉，指当中的文字及图片涉嫌不雅。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/51295896.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/51295896.shtml</code></p>
 
 <h3>2008年资讯月 台中区展现地方特色</h3>
 <p>2008年资讯月，昨（12）日在台中水湳经贸园区（旧台中水湳机场）展开台中区一连六日的展览。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/88789913.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/88789913.shtml</code></p>
 
 <h3>新加坡小贩文化获列入非遗名录</h3>
 <p>联合国教科文组织非物质文化遗产政府间委员会（IGC）12月16日召开会议，将新加坡小贩文化列入《人类非物质文化遗产代表名录》，新加坡成为首个「入遗」的文化遗产。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/56443298.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/56443298.shtml</code></p>
 
 <h3>中国中央电视台台标被中国教育部指不符规范 需修改</h3>
 <p>中国教育部语言文字应用管理司除了明确指出中央电视台的15个频道（CCTV1－CCTV12、CCTV新闻、幼儿、音乐）、山东教育电视台（SDETV）、北京电视台（BTV北京）、内蒙古电视台（NMTV内蒙）、重庆电视台（CTV）、西藏电视台（XZTV西藏）需要修改，同时还对隶属于中华人民共和国教育部的中国教育电视台表示感谢和敬意。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/15661683.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/15661683.shtml</code></p>
 
 <h3>平安夜 中国官媒吁民众纪念长津湖战役胜利</h3>
 <p>部分中国自媒体和网友，近日在微博上发声主张，提议将12月24日「平安夜」改名为「纪念长津湖战役胜利日」，在中国互联网引发广泛讨论。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/17411156.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/17411156.shtml</code></p>
 
 <h3>明报引用情色版 被裁定为不雅</h3>
 <p>早前香港的《明报》引用《中大学生报》情色版进行学术讨论收到投诉后，被香港淫亵物品审裁处暂评为不雅物品。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/38711907.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/38711907.shtml</code></p>
 
 <h3>第39届香港电影金像奖揭晓各奖项</h3>
 <p>香港电影金像奖协会通过在线社交媒体通过实时流媒体实时播报第39届香港电影金像奖的获奖结果，由于今年新型冠状病毒的疫情，本届改为金像奖主席尔冬升在互联网上宣布结果。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/28354383.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/28354383.shtml</code></p>
 
 <h3>日剧HERO特别篇将播映</h3>
 <p>HERO是于2001年在日本播出的连续剧，全部共有11集，主要演员有木村拓哉、松隆子与阿部宽等人，当初播映的平均收视率达到了34.4%，而在5年后，这部连续剧将以特别篇的方式重回观众眼前。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/56790273.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/56790273.shtml</code></p>
 
 <h3>人权圣火进入台湾 民主人士强烈抨击中国人权打压行径</h3>
 <p>由全球三百余政、商、法、医、社等各领域人士，以及法轮功受迫害真相联合调查团（CIPFG）等单位发起的「人权圣火计划」，自从去年在希腊启动后，今（1）日正式进入台湾，展开传递活动。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/94982882.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/94982882.shtml</code></p>
 
 <h3>维基爱非洲2020竞赛赢家已揭晓</h3>
 <p>一张名为《我的故乡》（My homeland）的图片赢得了「维基爱非洲」（Wiki Loves Africa）摄影比赛。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/43045006.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/43045006.shtml</code></p>
 
 <h3>2008台北灯节开幕 将影响书展人潮与周边交通</h3>
 <p>2008台北国际书展进入第三天，除了二馆动漫主题馆的人潮仍持续涌进外，虽然今日起一连三天延长开放时间，但随著2008台北灯节在信义商圈进行的情况下，人潮将开始涌进，若连同周边的交通，明、后两日将会达到最高峰。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/58247089.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/58247089.shtml</code></p>
 
 <h3>世界最大客船忠仆号 台湾之旅画上休止符</h3>
 <p>世界纪录中最大的海上书展，也是将在2010年退役的最古老邮轮「忠仆号」，在今日于基隆东四码头的最后展出画下句点，而此邮轮是在3月10日开始，分别在高雄港、台中港、基隆港等三大港口，进行来台的巡回展出，也是最后一次来台进行巡回的海上书展，第一次来台是在1988年的高雄港，而基隆则是在1991年首度停靠。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/21210205.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/21210205.shtml</code></p>
 
 <h3>《为什么要民主？》纪录片座谈会 借镜国际 检视台湾民主成果</h3>
 <p>即将于2007年10月8日起在全球200个电视台同步上映，由十部纪录片汇聚而成的纪录片系列《为什么要民主？<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/75416156.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/75416156.shtml</code></p>
 
 <h3>温家宝支持本土动漫产业发展 称奥特曼是动画</h3>
 <p>温家宝支持中国发展本土的动漫产业以及「温家宝的孙子喜欢看奥特曼」马上在网上引起热议；一天之内，很多网站都刊载了对中国动漫产业的反思和建议的文章。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/38591429.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/38591429.shtml</code></p>
 
 <h3>日本年度汉字 “变”夺头筹</h3>
 <p>12月12日，是日本的“汉字之日”，在日本汉字能力鉴定协会举行的“反映今年世相一汉字”的票选活动中，“变”（変）当选为日本年度汉字。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/15318903.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/15318903.shtml</code></p>
 
 <h3>广西动物园有黑猩猩向游客扔水樽致眉骨流血 园方称属正当防卫</h3>
 <p>广西南宁动物园有一只黑猩猩，向一名游客扔水瓶，造成一人面部受伤流血。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/15281947.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/15281947.shtml</code></p>
 
 <h3>香港UA戏院宣布全线结业</h3>
 <p>香港UA戏院宣布，因疫情及长期经营压力，即日起关门，并表示已启动清盘程序。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/44450281.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/44450281.shtml</code></p>
 
 <h3>台北国际书展与国际出版人协会合作 展开国际合作计划</h3>
 <p>2008年台北国际书展将于明（13）日开幕，各国厂商、媒体、出版界菁英拭目以待，而在春节期间，台北国际书展在经过国际出版人协会（IPA）的审核后，于5日正式成为IPA的成员组织，并且在今（12）日的展前记者会中，完成国际合作计划的签署。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/65516132.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/65516132.shtml</code></p>
 
 <h3>竹新社切换为在自由版权上发布</h3>
 <p>2020年11月18日，以Telegram频道为发布平台的新闻媒体──竹新社将其编译的原创报导，移至自由版权上发布。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/34899561.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/34899561.shtml</code></p>
 
 <h3>2008年「遇见台湾新感动」设计大赏 展现台湾设计产业潜力</h3>
 <p>「新一代设计展」进入第二天，入场参观的学生也随著周末的逼近，逐渐成长，而在开幕日，行政院文化建设委员会举行了「遇见台湾新感动」设计大赏的颁奖典礼，表扬优秀的设计师。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/14524880.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/14524880.shtml</code></p>
 
 <h3>雄狮美术公开誉扬典礼，百位小朋友封街彩绘</h3>
 <p>誉扬典礼现场还举办了百位而同封街彩绘的活动，之所以会以「小河流的旅程」为主题，是因为雄狮美术所在的车层里，原本就是一个相当大的池塘，透过充满创意的彩绘活动，让居民重新「临水而居」，同时也象征雄狮美术如大海汇聚河流，滋养这块土地。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/88600049.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/88600049.shtml</code></p>
 
 <h3>日本国民喜剧艺人志村健因感染冠状病毒病逝世</h3>
 <p>当地时间（UTC+9）3月29日23时10分，日本著名喜剧艺人志村健因染上新型冠状病毒肺炎，在东京日本国立国际医疗研究中心医院病逝，享年70岁。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/44183514.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/44183514.shtml</code></p>
 
 <h3>传中华电信无法全额赞助 台北主办维基年会添变数</h3>
 <p>然而据今日上午台湾《联合报》消息指出，年会主要赞助商中华电信未能全额赞助，恐怕使台北市主办维基媒体国际大会增添变数。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/83308531.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/83308531.shtml</code></p>
 
 <h3>素海霖成首位来自香港的AV女优</h3>
 <p>香港KOL素海霖最近宣布于日本以AV女优身分出道，创下历史，成为香港史上进军日本色情界第一人。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/15436037.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/15436037.shtml</code></p>
 
 <h3>2008台湾国际儿童电视影展 各国影视界菁英共襄盛举</h3>
 <p>自2004年起由台湾公共电视首办，两年一度的「台湾国际儿童电视影展」，昨（4）日在台北诚品信义店正式开幕，主办单位也在开幕前，从各国的参赛者中，选出参与影展选拔的25个入围影片，在本次展览中放映，并将角逐最后的奖项。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/98581992.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/98581992.shtml</code></p>
 
 <h3>韩国瑜变「南韩瑜」 中国媒体简转繁出误</h3>
 <p>近日中国大陆一些媒体的繁体中文网站在转换韩国瑜为繁体字时，出现将其变成「-{-{南韩}-瑜}-」的情况。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/53861492.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/53861492.shtml</code></p>
 
 <h3>认以床照要胁女子当性奴，《绳角》导演判囚10月</h3>
 <p>香港ViuTV电视剧《绳角》、TVB《踩过界》导演罗俊伟，2022年与一名酒吧女郎性交易后，拍下对方的私密照，其后以床照威胁对方当他的性奴和拍片「扮狗」，因威胁发布私密影像罪判囚10个月。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/52687282.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/52687282.shtml</code></p>
 
 <h3>明星代孕产子引风波 中国官媒齐声谴责</h3>
 <p>2021年1月19日起，中国中央电视台、中国长安网（中共中央政法委员会主办媒体）、《紫光阁》、共青团中央等官方媒体及组织就演员郑爽美国代孕产子事件发表评论，指责郑爽的行为既违背社会公德和公序良俗，也违反法律。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/61612883.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/61612883.shtml</code></p>
 
 <h3>杨瑞承、钟承祐进入富邦悍将</h3>
 <p>中华职棒于14日下午公布，由于乐天桃猿网罗自由球员赖鸿诚，因此富邦悍将要求乐天桃猿补偿内垒手杨瑞承以及转队费234万元。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/91819358.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/91819358.shtml</code></p>
 
 <h3>孙燕姿在南京举行个人演唱会</h3>
 <p>&quot;小天-{后}-&quot;孙燕姿的个人专场演唱会昨晚在南京奥体中心，约有四万歌迷前往观看，现场气氛热烈。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/19466548.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/19466548.shtml</code></p>
 
 <h3>美国Tribune公司申请破产保护</h3>
 <p>据了解，美国报业出版和广播集团Tribune公司正忙于申请各项破产保护，最早可能在本周提出破产保护申请。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/32490465.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/32490465.shtml</code></p>
 
 <h3>中银香港星期三发奥运纪念钞现人龙</h3>
 <p>中银香港星期三将发行北京奥运纪念钞票，今日在中环总行和多间分行，已出现排队购买的人龙。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/56686086.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/56686086.shtml</code></p>
 
 <h3>2024年维基媒体会议将在波兰克拉科夫举行</h3>
 <p>当地时间3月20日，2024年度维基媒体会议（Wikimania）主办方决定了举办地点，届时将在波兰克拉科夫市举办。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/86864863.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/86864863.shtml</code></p>
 
 <h3>全球艺术与创意 汇聚iGoogle创意主题展</h3>
 <p>Google台湾在庆祝二周年后，10日晚间在华山文化园区，结合全球近70位艺术家的创意作品，将日前于四月底在纽约举行的「iGoogle大型幻影艺术秀」引进台湾，除了有引人注目的户外幻影秀，主办的Google台湾也邀请了PPaper的设计总监冯宇、首席设计师余凌儿，以及色彩奇迹学苑创办人上官昭仪，针对艺术相关话题，进行演说。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/63517161.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/63517161.shtml</code></p>
 
 <h3>文化部公布音乐“黑名单”</h3>
 <p>近日，文化部公布了一批网络音乐“黑名单”，共有120首歌曲被下架，原因是这些歌曲包含宣扬淫秽、暴力、教唆犯罪等危害社会公德的内容。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/70098241.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/70098241.shtml</code></p>
 
 <h3>2010年台北国际书展 数位学习 造就另类学习方式</h3>
 <p>2010年台北国际书展今日进入收尾阶段，无论是本展，或是台北电脑应用展、资讯月，「数位典藏与数位学习国家型科技计划」的数位学习主题馆，向来已成为各参观者必定朝圣的重点主题展区。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/24118516.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/24118516.shtml</code></p>
 
 <h3>台湾采风乐坊 让太鼓之达人电玩原声带别有风味</h3>
 <p>而在《太鼓之达人 2008原声带》开始有台湾的乐曲创作家助阵后，未来台湾的创作家是否有加入其他游戏音乐创作的可能，仍待观察。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/49921604.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/49921604.shtml</code></p>
 
 <h3>2008年维基媒体理事选举投票结束</h3>
 <p>2008年维基媒体理事会理事选举，投票期已于21日结束。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/67653062.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/67653062.shtml</code></p>
 
 <h3>Sony Fair 2008 小型演唱会 首拉管制线 台北101关切</h3>
 <p>Sony Fair 2008，今（6）日进入第四天的展示，除了基本的数位影音展览，在周末假期的晚间，新力博德曼邀请了旗下艺人，来到会场举行小型演唱会（Mini Concert）。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/52204558.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/52204558.shtml</code></p>
 
 <h3>华山文化园区 大专院校毕业展秀创意 为设计展暖身</h3>
 <p>在台湾，每年五、六月适逢毕业季，各大专院校也借由不同形式的毕业成果展，展现其创意成果，而在华山文化园区，不只iGoogle的幻灯艺术秀，部分科系也在此，展现他们的创意设计，仿佛为周四即将登场的「新一代设计展」进行暖场。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/80906730.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/80906730.shtml</code></p>
 
 <h3>结合公益与娱乐 2007-08阿兹特克杯冬季电玩赛 寒冬中现暖流</h3>
 <p>根据主办的台湾阿兹特克电玩社群网指出，阿兹特克杯的比赛方式，会依照比赛性质差异，采用季赛、月赛，或是友谊赛的方式进行，并且会选择不同的游戏，作为指定的比赛项目，此外，参与的赞助单位一致地认为，这次在冬季的比赛，主办单位选择结合娱乐、生活、公益等三要素，不但有助预弱势团体的关怀，更能使电子竞技与数位产业向上提升。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/18722123.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/18722123.shtml</code></p>
 
 <h3>演艺人员与篮球员竞相站台 厂商、消费者、媒体三赢</h3>
 <p>因此以消费展而言，可以在消费者、厂商、媒体各取所需的情形下，达成三赢的效果。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/29108825.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/29108825.shtml</code></p>
 
 <h3>卷入台湾网红谢侑芯死亡案 大马艺人黄明志遭通缉被捕</h3>
 <p>2025年11月4日，马来西亚吉隆坡总警长拿督法迪尔宣布将台湾网红谢侑芯死亡事件列为“谋杀案”来调查，并指黄明志是谢侑芯生前最后接触的人，不排除会对黄明志进行扣查。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/66896404.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/66896404.shtml</code></p>
 
 <h3>中国棒球队逆转中华台北棒球队 遭台湾网友痛批为国耻</h3>
 <p>北京奥运棒球预赛出现让专家跌破眼镜的结果，中国棒球队在「只求一胜」的目标下，竟在今（15）日对上中华台北队的比赛中，以8：7拿下胜利，这不但是中国队首度在国际赛事中，将中华台北队击败，巧合的是，这也是后援投手阳建福登板救援的三连败，前两次分别是在雅典奥运中，被义大利打出再见全垒打，以及被日本队打出再见高飞牺牲打。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/45808766.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/45808766.shtml</code></p>
 
 <h3>东京奥运会多个比赛将以无观众形式举行</h3>
 <p>7月9日，北海道也宣布，原计划可允许部分观众入场的足球比赛以及允许观众沿途观看的马拉松和竞走等赛事，也将以“无观众”形式举行。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/31249637.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/31249637.shtml</code></p>
 
 <h2>三、文化娱乐新闻精选</h2>
 <h3>原住民工艺精品 台湾首办主题展览暨竞赛</h3>
 <p>为了推展台湾的原住民工艺，行政院原住民族委员会，在今（26）日公布了获选的21位原住民族工艺师，并从所有参选的308件精品中，选出40件进行产品认证，于台北市的凯达格兰文化馆进行展示，而这也是台湾第一个针对原住民工艺精品所设立的展览。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/93837568.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/93837568.shtml</code></p>
 
 <h3>黄军豪创作个展开幕，谈「小机械」创作概念</h3>
 <p>台湾青年艺术家黄军豪创作个展今（10）日起至5月5日于直走咖啡（G Straight Cafe）展出，开幕日晚上举办开幕茶会。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/38784625.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/38784625.shtml</code></p>
 
 <h3>克里米亚举办「世界古代金字塔」新摄影展</h3>
 <p>克里米亚苏达克的热那亚堡垒博物馆保护区6月3日举办了俄罗斯摄影师/摄影艺术家Viktor Pinchuk的作品展，时间恰逢俄罗斯地理学会年度活动“地理之夜”。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/26638985.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/26638985.shtml</code></p>
 
 <h3>台艺人表态挺「一中」 赖清德吁民众谅解</h3>
 <p>对于台湾艺人的表态，赖清德26日回应，台湾文化工作者在大陆被迫政治表态已非首次，在别人的屋簷下，文化工作者讲什么固然重要，但更重要的是他们内心所想，呼吁国人给予谅解和体谅。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/59077471.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/59077471.shtml</code></p>
 
 <h3>教宗方济各：将同性恋者定罪是一种「罪恶」 表态支持民事结合</h3>
 <p>罗马天主教教宗方济各再谈到同性恋问题，谴责将同性恋定为犯罪并不公正、是一种「罪恶」。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/79558349.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/79558349.shtml</code></p>
 
 <h3>E3电玩游戏博览会停办</h3>
 <p>全球电子游戏产业最大的年度商业化展览「E3电玩游戏博览会」停办。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/13013900.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/13013900.shtml</code></p>
 
 <h3>台湾知名作家琦君凌晨逝世</h3>
 <p>台湾知名作家琦君今日凌晨4:45分(UTC+8)病逝于台北市和信医院，享年90岁。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/53649697.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/53649697.shtml</code></p>
 
 <h3>台南孔庙碑碣登录为台南市古物</h3>
 <p>台南市文化局最近针对台南孔庙的碑碣进行审查，将25组32件碑碣登录为台南市的一般古物。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/32984785.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/32984785.shtml</code></p>
 
 <h3>港乐团员初步确诊 林郑曾观看表演</h3>
 <p>香港管弦乐团一名乐手初步确诊新冠肺炎。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/44387372.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/44387372.shtml</code></p>
 
 <h3>巴基斯坦校园恐布攻击血流成河 举国悼念、教会祷告</h3>
 <p>16日巴基斯坦发生校园恐怖攻击惨案，总计148人死亡、约130人受伤。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/10822505.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/10822505.shtml</code></p>
 
 <h3>「风景这边独好」：从春节看2024中国经济</h3>
 <p>中共中央总书记习近平于2024年春节团拜会上称放眼全球，仍然是中国“风景这边独好”。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/35929527.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/35929527.shtml</code></p>
 
 <h3>印尼迁都争议 新华社文章引风波</h3>
 <p>日前中国官方媒体新华社的新闻稿件却直接宣布迁都努山塔拉，本文将就此事件引起之争议进行具体介绍。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/98385339.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/98385339.shtml</code></p>
 
 <h3>新水怪菲比斯奥运8金创历史新一页</h3>
 <p>美国泳手菲比斯于北京奥运不断打破世界纪录夺金，并定下目标，要拿下8面金牌，最终于今日男子100米混合泳接力胜出，达到8金目标，除打破了史匹兹于1972年奥运会上独得7金的纪录，成为于一届奥运中取得最多金牌的人之外，个人累积奥运金牌数目亦达14面，是历来最多奥运金牌的人。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/95171227.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/95171227.shtml</code></p>
 
 <h3>纽约汤普金斯举办全女自由爵士音乐会 庆祝妇女历史月</h3>
 <p>2026年3月12日，星期四，纽约市汤普金斯广场图书馆在其地下演出空间举办了一场Musique Libre Femmes音乐会。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/88174636.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/88174636.shtml</code></p>
 
 <h3>甄子丹：反送中不是示威，是暴动 港人联署促奥斯卡撤颁奖嘉宾</h3>
 <p>港产武打巨星甄子丹因近日发表争议言论，指责2019年反送中抗议者参与“暴动”后，激怒部份网民群起抵制，有超过两万人在网上参与联署，要求本届奥斯卡撤销邀请甄子丹担任颁奖嘉宾。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/38775524.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/38775524.shtml</code></p>
 
 <h3>事实查核：中国大陆下令媒体禁报《花木兰》？真相并非如此</h3>
 <p>此后的9月11日至12日，中国大陆报刊《齐鲁晚报》、《新京报》、《兰州晨报》及网络媒体界面新闻等亦对电影《花木兰》有大篇幅报导。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/87708140.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/87708140.shtml</code></p>
 
 <h3>2008年PeoPo公民新闻论坛 展望台湾公民新闻发展</h3>
 <p>由台湾公共电视、PeoPo公民新闻平台、世新大学广电系联手主办的「2008年PeoPo公民新闻论坛」，24日在世新大学举行，众多公民新闻参与者、部落格格主，以及大众传播相关菁英，皆共襄盛举，展望台湾公民新闻的局势。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/76369229.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/76369229.shtml</code></p>
 
 <h3>深水埗主教山配水库被清拆计划曝光后停工</h3>
 <p>深水埗主教山配水库被清拆后，有市民发现有百年历史的罗马式构件曝光。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/27460468.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/27460468.shtml</code></p>
 
 <h3>让契丹文在屏幕“重生”：古文字数字化先驱魏安逝世 享年65岁</h3>
 <p>英国汉学家、古文字数字化先驱兼维基人魏安（Andrew Christopher West）7月10日逝世，享年65岁。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/10431520.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/10431520.shtml</code></p>
 
 <h3>台湾演艺圈、体育界 参与「adidas为决胜北京而跑」 响应2008北京奥运</h3>
 <p>虽然「2008北京奥运圣火」持续在欧美各国传递，并发生不少冲突与争端，但今（20）日（台北时间）在台湾台北市，由-{zh-hans:阿迪达斯;zh-hant:爱迪达}-举办，并获得超级篮球联赛球员、演艺圈力挺的「adidas为决胜北京而跑」，除了要拉回奥运圣火遭到抗争的低迷气息，更有为跆拳道选手朱木炎与杨淑君，加持奥运夺金的效果。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/43671005.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/43671005.shtml</code></p>
 
 <h3>奥运马术保安员集体离职当局否认</h3>
 <p>有传香港奥运马术工公有大批比赛场地外判保安员，因不满工作条件恶劣，酝酿集体离职。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/95014086.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/95014086.shtml</code></p>
 
 <h3>2015年英国电影学院奖今晚举行</h3>
 <p>本尼迪克特·康伯巴奇、费莉希蒂·琼斯、凯拉·奈特莉、罗莎蒙德·派克和埃迪·雷德梅尼，在英国众星之间有望赢得周日的英国电影学院奖。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/22662444.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/22662444.shtml</code></p>
 
 <h3>2008台北国际书展Cosplay大赛 各大角色齐聚动漫馆</h3>
 <p>2008台北国际书展的「Cosplay大赛」，在昨（16）日甫落幕，虽然因为近期的气候，影响到整个比赛的运作，但各参赛者仍旧拿出与往年大不同的角色装扮，吸引参观者与媒体的目光。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/76826596.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/76826596.shtml</code></p>
 
 <h3>各国元首云集北京，奥运今日开幕</h3>
 <p>第29届奥林匹克运动会今日将于北京开幕，八十多个国家元首或政要已接踵而至，云集北京，迎接奥运。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/82414402.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/82414402.shtml</code></p>
 
 <h3>2008台北国际书展 动漫馆星光派对 让阅读不只是阅读</h3>
 <p>2008年台北国际书展进入倒数阶段，各厂商为了争取客源，促销、杀价的模式纷纷出笼，甚至签名会仍旧持续地进行中，而在台北展演二馆的动漫主题馆展示中，第三、四天（15、16日）的「星光派对」活动，却显现出别于一馆与三馆（儿童书区）的特色。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/72904966.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/72904966.shtml</code></p>
 
 <h3>多个组织指责奥运前采访受限</h3>
 <p>北京在申辩奥运时曾承诺开放记者自由采访，但近日《亚洲华尔街日报》以及人权观察都发表评论及报告，指责北京违反承诺。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/70017927.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/70017927.shtml</code></p>
 
 <h3>半世纪后 披头四结他寻回</h3>
 <p>世界知名摇滚乐队披头四成员保罗麦卡尼半世纪前遗失的低音结他现已寻获。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/48008539.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/48008539.shtml</code></p>
 
 <h3>平安夜「灯饰」 香港狮子山顶亮现港人灯牌</h3>
 <p>香港平安夜圣诞节期间，有社运人士晚上来到狮子山，举起灯牌。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/25101480.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/25101480.shtml</code></p>
 
 <h3>黄日华之妻梁洁华离世</h3>
 <p>5月26日，香港无线电视演员、黄日华妻子梁洁华离世，享年59岁。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/91777525.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/91777525.shtml</code></p>
 
 <h3>十大最易读错英文字Phenomenon居首位</h3>
 <p>英国一间机构最近做了一项问卷调查，发现最难读的英文字是 Phenomenon。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/24964630.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/24964630.shtml</code></p>
 
 <h3>2008台北国际书展 新闻局剧情漫画奖 参赛者族群大转变</h3>
 <p>自去年起就引起话题的「新闻局剧情漫画奖」，在今（14）日公布了2007年度的得奖名单，这项由行政院新闻局主导的竞赛，是为了推动台湾漫画产业所设计的竞赛，在此竞赛收件之际，新闻局也会借由各项漫画界相关活动的办理，以及漫画刊物的补助发行，来拓展该项产业。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/52967147.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/52967147.shtml</code></p>
 
 <h3>日本京都动画纵火案42岁疑犯正式被逮捕</h3>
 <p>在日本造成36人死亡的京都动画纵火案，京都府警方以谋杀和纵火罪逮捕了42岁的犯罪疑犯青叶真司。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/97489310.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/97489310.shtml</code></p>
 
 <h3>中国福建客家土楼列入世界遗产名录</h3>
 <p>联合国教育科学与文化组织的世界遗产委员会，今天新增三个世界遗产，其中包括中国福建永定客家土楼。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/95052814.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/95052814.shtml</code></p>
 
 <h3>奥运圣火抵欧 英法发生抗议活动</h3>
 <p>虽然2008年奥运圣火传递正持续地进行，但圣火在欧洲地区传递时，因为部分人士对于中国的人权状况表示质疑，进而发生多起出面抵制的冲突，甚至当圣火传到法国境内时，法国当地的警方为了避免暴动，在不影响火种为前提下，一度将圣火熄灭，但仍有近30位人士在法国的抗议示威中被捕，当中包含巴黎市议会副议长费里。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/32304253.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/32304253.shtml</code></p>
 
 <h3>2008年资讯月 Xbox 360 焕然一新 艺人站台涨声势</h3>
 <p>2008年台北资讯月，今（2）日是第四天的展出，微软除了展示威盛电子提供，搭载Windows Home Server的家用储存伺服器，以Xbox 360为主的畅玩区，更因为新游戏《超级大明星》（You&#x27;re In The Movies）与Xbox 360主机的新服务，让参观的玩家为之一亮。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/99927715.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/99927715.shtml</code></p>
 
 <h3>一位俄罗斯旅行者在加德满都与地理学家举行了一次会议</h3>
 <p>2026年3月15日，在尼泊尔首都加德满都，当地地理学会成员会见了旅行作家维克多•平丘克，他曾前往非洲，亚洲，拉丁美洲和大洋洲的60多个国家。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/85326709.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/85326709.shtml</code></p>
 
 <h3>纽约长岛Striped Light实验音乐演出 四位表演者联袂献艺</h3>
 <p>2026年2月16日晚，观众聚集在一个未公开的地点，观看三场实验音乐表演在纽约市皇后区长岛市的演出，这是正在进行的Striped Light系列活动的一部分。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/18913453.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/18913453.shtml</code></p>
 
 <h3>《阿甘正传》原著作者格鲁姆逝世 终年77岁</h3>
 <p>电影《阿甘正传》和横扫六项奥斯卡奖的同名原著小说的作者温斯顿·格鲁姆在家乡去世，享年77岁。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/20493483.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/20493483.shtml</code></p>
 
 <h3>中国年轻人不满新年红包压力</h3>
 <p>据报，中国年轻人对发放及收取红包的传统逐感焦虑。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/74391831.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/74391831.shtml</code></p>
 
 <h3>法国名导演亚伦·裘贝访台 畅谈艺术电视节目制作经验</h3>
 <p>享誉法国与德国的美术节目「调色盘」（Palettes），其导演亚伦·裘贝（Alain Jaubert）应台湾公共广播集团与法国在台协会的邀请，在今日举办专题演讲，并与台湾地区知名纪录片导演，也是国家文艺基金会董事长黄明川，就艺术类电视节目的制作，进行经验分享与交流。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/62436222.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/62436222.shtml</code></p>
 
 <h3>北京奥运新闻中心正式运作</h3>
 <p>北京奥运主新闻中心、国际广播中心及国际新闻中心昨日(8日)开始正式运作。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/73931374.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/73931374.shtml</code></p>
 
 <h3>台湾商用游戏第一次 场测结合网路直播 加强互动效果</h3>
 <p>但早前在台湾，NICONICO动画结合了游乐场业者的游戏场测活动，进行网路现场直播，让游戏迷即使没有到场，也能观看场测活动的现场节目，是台湾商用游戏界的首例。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/20283947.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/20283947.shtml</code></p>
 
 <h3>麦当娜台北演唱会披青天白日旗引争议</h3>
 <p>美国流行歌手麦当娜4日在台湾台北小巨蛋举办演唱会时，在演出结束前身披青天白日旗配以满地红色再度出场。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/42740612.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/42740612.shtml</code></p>
 
 <h3>香港旺角街头剧团惹不满遭网民相约声讨</h3>
 <p>香港的旺角行人专用区，星期日(8月24日)有近60名市民身穿黑衣，对常于该处表演的剧团「好戏量」所进行的街头表演表示不满。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/67587609.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/67587609.shtml</code></p>
 
 <h3>创讽刺毛泽东作品 高兟中国探亲被捕</h3>
 <p>中国当代艺术界知名的「高氏兄弟」之一高兟，于8月26日返回中国探亲期间遭河北警方逮捕。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/16459481.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/16459481.shtml</code></p>
 
 <h3>《达芬奇密码》法国首映揭幕</h3>
 <p>《达芬奇密码》官方首映式周三晚间在法国康城国际影展上揭幕，男主角汤姆·汉克斯以及导演罗恩·霍华德将会出席。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/69254206.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/69254206.shtml</code></p>
 
 <h3>国台办称会按协议称呼台湾奥运团</h3>
 <p>国台办发言人周三（7月23日）发表讲话，否认大陆违背香港协议，将台湾奥运团体的名称由中华台北改称为中国台北。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/24667965.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/24667965.shtml</code></p>
 
 <h3>演员于蓝逝世，享年99岁</h3>
 <p>中华人民共和国演员于蓝近日在北京逝世，享年99岁。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/41007843.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/41007843.shtml</code></p>
 
 <h3>捷克女子气步枪选手夺北京奥运第一金</h3>
 <p>北京奥运开幕，所有比赛于今日展开，并已诞生第一面金牌，由捷克女子气步枪选手夺得。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/19853303.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/19853303.shtml</code></p>
 
 <h3>民生报宣布停刊 12月1日吹熄灯号</h3>
 <p>民生报的停刊，也成为继大成报后，自苹果日报进入台湾以来，第二份停刊的民生娱乐性质报纸。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/83671300.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/83671300.shtml</code></p>
 
 <h3>柴诞节，访著名中国世界语者黄银宝</h3>
 <p>借此机会，我们采访到了著名的中国世界语者黄银宝先生，他曾担任世界语联盟副主席和联合国教科文组织《信使》杂志的首任主编，在家乡甘肃经川县建立了一家世界语中心，资助世界语者并出版联合国的杂志。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/93467113.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/93467113.shtml</code></p>
 
 <h3>美国作家温斯顿·葛鲁姆去世</h3>
 <p>知名电影《阿甘正传》原作者，美国小说家温斯顿·葛鲁姆近日逝世，享年77岁，其死因尚未得到证实。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/92332095.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/92332095.shtml</code></p>
 
 <h3>2010年游戏之星玩家票选 三强鼎立天下 业者势力均分</h3>
 <p>展现台湾游戏产业成果，象征台湾游戏产业奥斯卡的「2010年游戏之星选拔赛」玩家票选活动，最终尘埃落定。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/54898775.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/54898775.shtml</code></p>
 
 <h3>2007维基媒体国际会议 周边活动起跑 为大会暖身</h3>
 <p>第三届维基媒体国际大会正式会议进入倒数，各路人马陆续莅临台北剑潭会场，而在正式会议前的8月1日与2日，专为程式设计交流而设计的「Hacking Days」与探讨公民新闻发展的「公民新闻学研讨会」，以及由台湾CC创用计划举行的「OLPC课程创作，即兴混搭」等周边活动（Site Events），陆续登场，为本次大型会议提前暖身。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/85675480.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/85675480.shtml</code></p>
 
 <h3>美国圣公会选出首位女性领袖</h3>
 <p>基督教圣公会在美国的教会主教投票选出了第一位女性教会领袖。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/35127685.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/35127685.shtml</code></p>
 
 <h3>春节年货大街 台湾大拼场 实体与网路同步开启战火</h3>
 <p>农历春节庆祝前夕，台湾的年货大街市场已经正式在18日点燃战火，不只是实体的传统市场，甚至连网路购物网站、量贩通路等业者，也推出了在家采购的模式，要和实体市场打一场消费战。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/86330922.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/86330922.shtml</code></p>
 
 <h3>奥运开幕采排「鸟巢」试放烟花</h3>
 <p>昨晚采排于8时开始，与8月8日正式开开幕式时间一样，采排中，除看见鸟巢有灯光和烟花表演，旁边的水立方也不断变色，另外又不时有表演者进出会场。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/47313283.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/47313283.shtml</code></p>
 
 <h3>“卡伦·布莱克的丰腴梦魇”乐队在MoMA PS1现代艺术分馆为瓦吉纳尔·戴维斯展览献演</h3>
 <p>作为戴维斯在MoMA PS1展览的特别活动，肯布拉·普法勒（Kembra Pfahler）领导的乐队&quot;卡伦·布莱克的丰腴梦魇&quot;（The Voluptuous Horror of Karen Black）于10月11日在博物馆中庭进行了演出。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/17778550.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/17778550.shtml</code></p>
 
 <h3>维基记者观察电影「花木兰」在中国大陆的评价</h3>
 <p>维基记者也观察到各方对电影《花木兰》的评论非常两极。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/85862760.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/85862760.shtml</code></p>
 
 <h3>北京奥运会违规使用禁药再添三例</h3>
 <p>国际奥委会常务委员会于瑞士洛桑当地时间12月11日做出裁决：因在北京奥运会上违规使用禁药，分别剥夺白俄罗斯链球选手瓦季姆·杰维亚托夫斯基与伊万·蒂克汉在北京奥运会取得的链球银牌和铜牌成绩，剥夺波兰皮划艇选手亚当·塞罗琴斯基的北京奥运会男子双人皮艇1000米第四名的成绩。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/71961651.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/71961651.shtml</code></p>
 
 <h2>四、文化娱乐新闻精选</h2>
 <h3>电影「天能」于台湾上映6天票房破亿</h3>
 <p>电影「天能」8月27日在台湾上映后，上映6天票房破亿。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/15823129.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/15823129.shtml</code></p>
 
 <h3>《柬埔寨的高棉古寺》探险摄影展在雅尔塔举行</h3>
 <p>2025年8月28日，雅尔塔历史文学博物馆举办了为期一天的数字摄影展，题为“柬埔寨的高棉古寺”。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/66231469.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/66231469.shtml</code></p>
 
 <h3>2010年台湾客家桐花季 南投、苗栗音乐祭 轮番上阵</h3>
 <p>随著油桐花季节的到来，为了推广台湾客家音乐文化，2010年台湾客家桐花季，将在中部的南投与苗栗，先后举办两场客家音乐会的开幕暖场活动。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/56230269.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/56230269.shtml</code></p>
 
 <h3>摔角手电影获第65届威尼斯影展最佳电影</h3>
 <p>第65届威尼斯影展昨日凌晨闭幕，《9个半星期》男星米奇洛基(Mickey Rourke)扮演失意摔角手的美国电影《摔角王》(The Wrestler)成为金狮奖最佳电影，但主角米奇洛基却落败于影帝。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/81896716.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/81896716.shtml</code></p>
 
 <h3>2011年台北国际书展 展开台北世贸年节后第一场商展</h3>
 <p>台北书展基金会在今日的展前国际记者会正式宣布，明（8）日起一连六日，「2011年第十九届台北国际书展」正式在台北贸中心一～三馆登场，并揭晓本届展览主题为「阅读，幸福进行式」，展示各国「幸福阅读」主题，并对外介绍本届主题国「不丹」与「建国一百年台湾文学主题馆」等主力展区。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/74703329.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/74703329.shtml</code></p>
 
 <h3>专题：中国AI课程名师盛衰</h3>
 <p>AI焦虑症走红中国网络，亦揭社交媒体对AI课程名师的盲从买单，然而如今这些「AI大神」正面临盛衰考验。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/65361855.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/65361855.shtml</code></p>
 
 <h3>2008台北国际书展 不同的阅读型态 展现各种阅读风格</h3>
 <p>2008年台北国际书展进入第四天，各签名会、见面会、小型座谈会都持续地进行中，在一馆的厂商，不乏有宗教、艺术、心灵类图书出版商的参与，而从各厂商举办的研讨活动中，多少可以看出不同的阅读修行风格。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/79136349.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/79136349.shtml</code></p>
 
 <h3>香港行政会议批准郑经翰电台牌照申请</h3>
 <p>由香港立法会议员郑经翰伙同城中富豪开办的电台雄涛广播，今日获得行政长官会同行政会议原则上批准获发12年广播牌照。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/74823460.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/74823460.shtml</code></p>
 
 <h3>2010年台北国际电玩展 与国际电子竞技接轨</h3>
 <p>2010年台北国际电玩展，今年将以「玩出一片天」为展览主题，集结国内外知名电子游戏业者，展示话题游戏与周边相关商品，有别于往年的单纯静态展示，与厂商自办活动，在上周刚发表Intel Core新产品家族系列的英特尔，将配合本展览，同步举办国际电玩大赛亚洲区决赛，这项比赛，将是继经济部与电脑公会在展览期间举办数位游戏大赛后，首个国际级电玩竞赛配合展览举办的纪录。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/58274101.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/58274101.shtml</code></p>
 
 <h3>香港艺人淫照案风波 全球资讯安全陷入危机</h3>
 <p>虽然，香港艺人陈冠希也在昨（21）日正式声明退出演艺圈，但裸照事件引发的资讯安全相关议题，将有可能在各国的大型企业中引起讨论，而网路使用者的网路使用习惯，相形之下，就格外显得重要。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/65280112.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/65280112.shtml</code></p>
 
 <h3>2006年普利兹新闻奖揭晓</h3>
 <p>普利兹奖是美国的新闻奖项，自1917年后，每年皆有颁发，时至今日，已成为世界闻名的奖项之一，昨日下午三点(美东时间)，第90届普利兹奖于哥伦比亚大学颁发。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/73609766.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/73609766.shtml</code></p>
 
 <h3>芒果TV删除欧歌赛同性恋画面遭解除播放合约</h3>
 <p>大赛组织者之后解除了与芒果TV的播放合约，称其做法不符合该联盟的传统和价值观。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/16887844.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/16887844.shtml</code></p>
 
 <h3>台南林百货确定将由高青开发经营</h3>
 <p>台南市市定古迹林百货的委外经营案，在昨天（7月3日）由台南市文化局宣布「高青开发有限公司」为最优申请单位，该企业即是台南FOCUS百货的经营业者。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/96625173.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/96625173.shtml</code></p>
 
 <h3>美国「史上最贵感恩节」 调查指不打算娱乐消费的人创下历史新高</h3>
 <p>进入今年最繁忙的购物季，不少人把今年感恩节称作“史上最贵感恩节”。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/87806029.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/87806029.shtml</code></p>
 
 <h3>「武则天她妈在钦州」惹热议 广西县政府道歉并改名</h3>
 <p>近日，中国微博上流传一则政府通告，称广西灵山县人民政府办公室成立了「武则天她妈在钦州」历史文化研究工作小组，发掘灵山历史文化遗产，其命名引发热议。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/38480062.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/38480062.shtml</code></p>
 
 <h3>若望保禄二世逝世一周年 天主教徒悼念</h3>
 <p>在今日中午时(-{梵蒂冈}-时间)，来自世界各地的天主教信徒前往圣彼得广场，参加前教宗若望保禄二世逝世一周年的追悼会。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/59349130.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/59349130.shtml</code></p>
 
 <h3>星光帮香港演唱会大唱广东歌</h3>
 <p>台湾「星光帮」的星光四少林宥嘉、周定纬、潘裕文、许仁杰加上「鸭子」徐宛铃星期日于香港新伊馆举行了两场演唱会，吸引大批歌迷捧场，星光帮还在演唱会中大唱广东歌，以回馈香港乐迷。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/30814587.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/30814587.shtml</code></p>
 
 <h3>中华电信将力挺国际维基媒体年会在台北举行</h3>
 <p>中华电信公司于9月26日下午发表新闻稿，澄清先前无法赞助的传闻，并表示将全力支持维基年会在台北举办，促成这个国际活动顺利举行。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/25803045.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/25803045.shtml</code></p>
 
 <h3>吴伯雄不满中国台北称号或不出席奥运</h3>
 <p>早前，国民党主席吴伯雄5月下旬时，受中共总书记胡锦涛邀请，将以贵宾身份于8月初到北京参加奥运开幕式，但近日发生「中华台北」被改成「中国台北」一事，国民党秘书长吴敦义表示，吴伯雄可能不出席奥运。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/42726223.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/42726223.shtml</code></p>
 
 <h3>世界佛教论坛在中国浙江杭州开幕</h3>
 <p>由中华人民共和国1949年建国以来首次举办的第一次国际宗教会议&quot;世界佛教论坛&quot;今日在浙江杭州开幕，该论坛于13日至16日在浙江的杭州市和舟山市举行，共有中台港等各地和多个国家的一千多佛教高僧、专家学者及各国政要出席。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/73992419.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/73992419.shtml</code></p>
 
 <h3>2008台北国际书展 动漫主题馆大翻新</h3>
 <p>2008年台北国际书展，今年进入第十六届，虽然出版精英汇聚的世贸一馆，仅开放同业参观，但年轻读者众所盼望的动漫展区（台北展演二馆），在今（13）日上午以「华丽复古」的形式，抢先登场，主办的台北书展基金会，特别邀请了知名偶像艺人张钧宁、彭-{于}-晏担任动漫馆的代言人，两位代言人也特别致赠台湾本土制造的蜂蜜，赠送给远到来台的日本知名漫画家，「凡尔赛玫瑰」原作者池田理代子。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/45910724.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/45910724.shtml</code></p>
 
 <h3>旅行者在没与中俄建交的不丹演讲，国家图书馆小而精致</h3>
 <p>2026年3月28日，位于廷布的不丹国家图书馆举办了俄罗斯旅行作家维克多·平丘克的文学作品展示会，这是他访问的第65个国家，他还访问过50个不同的岛屿。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/96123944.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/96123944.shtml</code></p>
 
 <h3>2009年GEISAI台湾展 台面上大成功 台下暗斗损形象</h3>
 <p>在日本已有非常稳定根基，由日本知名艺术大师村上隆策划的知名艺术创作竞赛会展─GEISAI展，今日在台湾台北市举办亚洲巡回的海外首展，包括美国、日本、香港、台湾等地，超过400位艺术创作者，参与这项艺术盛会。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/96196453.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/96196453.shtml</code></p>
 
 <h3>2008台北国际书展大奖出炉 为台湾出版界开启新里程碑</h3>
 <p>2008台北国际书展，今（13）日在台北世贸一、三馆，台北展演二馆开幕，而今年首办的「书展大奖」，则吸引了众多出版界的菁英共襄盛举，在日前选出十项入围的作品后，于今日的开幕典礼中，正式公布了获奖的两组名单。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/58857184.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/58857184.shtml</code></p>
 
 <h3>中国奥运金牌精英到香港表演门票抢购一空</h3>
 <p>中国国家队奥运金牌精英下周到香港表演，香港康文署于今早发售门票，本来设有网上售票，但城市售票网的网站近乎瘫痪，而发售点则需轮候很久才能购票。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/35621108.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/35621108.shtml</code></p>
 
 <h3>第79届奥斯卡金像奖入围名单公布</h3>
 <p>美国影艺学院在23日凌晨5点38分30秒(UTC-8)时公布了第79届奥斯卡金像奖入围名单(条列如下)，本届的奥斯卡金像奖将有诸如最佳影片奖、最佳导演奖与最佳艺术指导奖等24个奖项被颁发，而在今年美国影艺学院所公布的入围名单里，以比尔康顿的音乐剧《梦幻女郎》入围的奖项最多，共有八个奖项，其次则为由阿利安卓岗．札雷伊纳利图所导演的《火线交错》(《火线交错》共入围七个奖项)。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/69301065.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/69301065.shtml</code></p>
 
 <h3>日本京都动画工作室遭纵火 至少十三人死亡</h3>
 <p>日本时间18日上午10时30分许，位于日本京都府京都市伏见区的日本京都动画公司第一工作室遭一名年约41岁男子泼洒疑似为汽油的液体纵火。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/34588534.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/34588534.shtml</code></p>
 
 <h3>维基媒体基金会获选世界经济论坛2008年科技先锋奖</h3>
 <p>在空前的申请数量和 273 项被提名对象中，世界经济论坛(World Economic Forum, 简称WEF)选择了维基媒体基金会为其2008年「科技先锋」奖项的得奖者之一。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/26012592.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/26012592.shtml</code></p>
 
 <h3>2008第五届金蝶奖 忧喜参半</h3>
 <p>专为台湾书籍封面设计者打造，并且誉为「台湾出版设计大奖」的金蝶奖，今（14）日上午抢先在「如何制作一本美丽的书」研讨会前，借由各国设计专家的见证下，公布了优胜的参赛者。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/57498659.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/57498659.shtml</code></p>
 
 <h3>抵制北京奥运 人权圣火之夜在台北登场</h3>
 <p>在台北时间今日凌晨，希腊启动人权圣火计划，并点燃人权火炬后，台湾大纪元时报、新唐人电视台、法轮功受迫害真相联合调查团（CIPFG）等单位就在晚间六点半，举办「人权圣火之夜」，并在晚会中借由行动剧，批评中国打压人权，并呼吁希望发扬奥运的原始精神，不要重蹈1936年德国柏林奥运的覆辙。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/37359102.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/37359102.shtml</code></p>
 
 <h3>中国南方暴雨持续，多处古桥梁遭冲毁</h3>
 <p>随着中国长江中下游地区暴雨持续，中国南方多处文物古迹遭到损毁。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/88379952.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/88379952.shtml</code></p>
 
 <h3>受疫情影响，李云迪陈小春澳洲巡演宣布取消或长时间延期</h3>
 <p>由于对新型冠状病毒肺炎疫情的担忧，以及受澳洲政府入境禁令影响，原定于本月举行的陈小春巡回演唱会墨尔本、悉尼站均宣布取消，李云迪全澳演奏会也延期至10月份举行。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/43921502.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/43921502.shtml</code></p>
 
 <h3>北京奥运会女子足球比赛与今天下午举行</h3>
 <p>北京奥运会女子足球比赛小组赛首轮将于今天下午举行。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/26623641.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/26623641.shtml</code></p>
 
 <h3>奥运古巴跆拳道选手踢裁判被罚终身停赛</h3>
 <p>古巴跆拳道选手马托斯（Angel Matos）于北京奥运跆拳道男子80公斤以上级铜牌战中，因不满被判罚出局，联同教练攻击裁判，被罚终身停赛。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/35066021.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/35066021.shtml</code></p>
 
 <h3>金球奖导演赵婷的国籍与过往言论引发争议</h3>
 <p>获得金球奖最佳导演奖的华裔导演赵婷，其作品《无依之地》（台译为《游牧人生》，港译为《浪迹天地》）也拿下最佳戏剧类影片，她获得金球奖当天，新浪微博上「#赵婷中国第一位金球奖最佳女导演#」的话题标签被阅读近3000万次。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/62445739.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/62445739.shtml</code></p>
 
 <h3>台湾知名歌手郭金发辞世 享寿72岁</h3>
 <p>以「烧肉粽」脍炙人口的台湾歌手郭金发在高雄市卫武营「2016 靓凤凰乐重阳老歌音乐会」表演中，突昏厥倒地送医不治，享年72岁。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/31766553.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/31766553.shtml</code></p>
 
 <h3>迪士尼米老鼠版权将于2024年届满</h3>
 <p>米奇老鼠系迪士尼旗下经典IP，于1928年11月18日在黑白动画中首次登场，版权将于2024年届满。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/57494180.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/57494180.shtml</code></p>
 
 <h3>美国国务院大幅收紧中共党员赴美旅游限制</h3>
 <p>美国政府大幅收紧了对中共党员及其家属赴美旅游的限制。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/86873345.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/86873345.shtml</code></p>
 
 <h3>钟欣桐获颁临时令禁制《壹本便利》</h3>
 <p>香港高等法院经过内庭聆讯后，向《壹本便利》发出临时禁制令，禁止刊登艺人钟欣桐的更衣照。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/52197589.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/52197589.shtml</code></p>
 
 <h3>一位俄罗斯作家的照片展在尼泊尔举行</h3>
 <p>2026年3月11日，尼泊尔国家博物馆举办了为期一天的数码照片展览，由俄罗斯摄影师、旅行者维克多•平丘克拍摄，他多次访问了共60多个各具情调的国家。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/28267946.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/28267946.shtml</code></p>
 
 <h3>美国歌星迈克尔·杰克逊逝世，终年50岁</h3>
 <p>被誉为流行音乐天皇的美国歌手迈克尔·杰克逊（Michael Jackson）于6月25日在美国洛杉矶一家医院（Ronald Reagan UCLA Medical Center）被宣告死亡。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/82035727.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/82035727.shtml</code></p>
 
 <h3>香港演员龙方因肺癌过世 知名恶役成绝响</h3>
 <p>曾在电影《赌神》饰演「高义」的香港知名电影恶役龙方，惊传在14日于中国西安长安区的西安肿瘤医院，因肺癌过世，据了解，龙方自去年咳嗽不停后，在今年5月于香港被诊断出「肺癌末期」。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/98813705.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/98813705.shtml</code></p>
 
 <h3>李小龙故居搁置出售</h3>
 <p>早前香港李小龙故居因招标出售，而受到李小龙影迷以及文化和电影界人士关注。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/68527000.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/68527000.shtml</code></p>
 
 <h3>中国大陆维基人与塞尔维亚维基人首次文化交流项目将于2月开始</h3>
 <p>由中国大陆维基人用户组与塞尔维亚维基媒体协会（Wikimedia Serbia）合作举办的「中国－塞尔维亚文化交流项目」的首期编辑活动将于2021年2月1日至3月1日举行。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/28475353.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/28475353.shtml</code></p>
 
 <h3>文化产业新整合 礼品文具展与创意文化展 台北世贸联合出击</h3>
 <p>第三届维基媒体国际会议的当时，「自由创作」的论坛交流与「创意」作品的展示，这两种不同类型的表现，做了一个巧妙的整合，而这种巧妙，又是产业特性接近的整合，也可以在台北世贸中心举行的第六十届台北国际秋季礼品暨文具展，与首度办理的台湾国际文化创意产业展，同时看到，因为这是继四月车用电子、汽机车零配件展，与上周电子、太阳能、RFID展的联合办理后，贸协第三度将相似的产业展整合并在同一时间办理的纪录。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/66875547.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/66875547.shtml</code></p>
 
 <h3>第十届香港动漫电玩节今日开幕</h3>
 <p>第十届香港动漫电玩节今日在香港会议展览中心开幕，截至下午五时，已有八万二千名市民进场，较去年升两成。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/46878488.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/46878488.shtml</code></p>
 
 <h3>小学教师涉「教授历史颠倒是非」被取消注册</h3>
 <p>教育局再次取消（DQ）一名小学教师的注册，称其在讲授常识科中的一些历史事件时，「颠倒是非」。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/80398907.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/80398907.shtml</code></p>
 
 <h3>中国新闻出版总署规范辞书出版</h3>
 <p>据北京娱乐信报报道，中国新闻出版总署为提高辞书出版质量，规范辞书出版秩序，特制定《关于规范图书出版单位辞书出版业务范围的若干规定》。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/63184528.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/63184528.shtml</code></p>
 
 <h3>「热舞Online」引旋风 名模也参阵</h3>
 <p>台湾知名电玩大厂─游戏橘子集团旗下的易吉网，今（31）日下午在台北车站举办「《热舞Online》热舞之星总决赛」，除了跳舞机高手的高水准较劲、周边体验活动，台湾名模林若亚与陈庭妮的出席，更吸引影剧媒体的高度注目。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/32878708.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/32878708.shtml</code></p>
 
 <h3>纽时：神韵严苛训练、行为控制、精神操纵</h3>
 <p>在美国纽约州北部一个占地400英亩的园区里，数以百计的年轻舞蹈演员和音乐家正在驰名世界的神韵艺术团接受严格训练。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/31425041.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/31425041.shtml</code></p>
 
 <h3>日本因疫情暂停振兴旅游计划</h3>
 <p>因应日本国内新型肺炎疫情的影响，日本首相菅义伟表示将从本月28日起至明年1月11日在日本全国范围内暂停“Go To Travel（Go Toトラベル）”振兴旅游计划活动。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/95703819.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/95703819.shtml</code></p>
 
 <h3>中国解除对韩国游戏版权限制</h3>
 <p>韩国媒体星期四（3日）报道，中国解除了对韩国游戏版权的限制，向《魔灵召唤：天空之役》发放了版号。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/63137227.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/63137227.shtml</code></p>
 
 <h3>大甲妈祖遶境活动开始</h3>
 <p>台湾台中县大甲镇的镇澜宫妈祖的銮驾遶境活动是台湾一年一度的宗教盛事，而今年大甲妈祖的遶境已于25日展开。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/48869777.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/48869777.shtml</code></p>
 
 <h3>中日韩艺术家汇聚 亚细亚现代雕塑展登场</h3>
 <p>2006亚细亚现代雕刻家协会雕塑展，今日（11月18日）于台北市华山文化园区的中1馆A区、中1馆B区开展，现场展示了台湾、日本、韩国等国的艺术家所雕塑出的室内外观景作品，并且，台湾、日本、韩国三国的艺术家也在今日进行作品的互相交流与联谊，为台湾亚细亚现代雕刻家协会奠定良好的开端。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/64229861.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/64229861.shtml</code></p>
 
 <h3>第十届香港动漫节星期五开幕今日己现人龙</h3>
 <p>香港动漫节(动漫节)将于本周五(8月1日)开幕，昨日下午已经出现排队人龙。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/23064875.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/23064875.shtml</code></p>
 
 <h3>2008台北国际电脑展 看见另一种设计观</h3>
 <p>台北国际电脑展今（4）日是第二日的进行，昨日就已经创下1.2万人参观的单日纪录，不只是资通产业，今年的台北国际电脑展，更有「设计观」。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/47803514.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/47803514.shtml</code></p>
 
 <h3>陈木胜导演罹患鼻咽癌逝世</h3>
 <p>香港著名导演陈木胜于8月23日早上不幸因鼻咽癌逝世，享年58岁。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/20125381.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/20125381.shtml</code></p>
 
 <h3>史密森尼博物馆将450万张高清图片免费开放下载</h3>
 <p>近日，该博物馆宣布将其部分藏品的高清图片免费开放网上下载，让公众可以自由使用这些珍贵的资源。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/33698260.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/33698260.shtml</code></p>
 
 <h3>2008台北国际书展 澳洲入选国际主题馆</h3>
 <p>主办的台北书展基金会宣布，澳洲将成为本次展览的国际主题馆，并且将主题定位为「活力澳洲—狂欢文化节」。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/29557778.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/29557778.shtml</code></p>
 
 <h3>台北市电器公会 用影音展见证公会60年岁月与全球影音发展史</h3>
 <p>台北市电器公会主办的「台北音响影视大展」，今年进入第28年，除了打破以往单纯的内销展售模式外，在世贸展区（台北世贸中心）也设置了「影音时光走廊区」，并展示了从以往到现在的各项影音设备，包含台湾媒体瞩目的留声机、传统电视等，也为主办的电器公会，见证一甲子的岁月。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/97447284.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/97447284.shtml</code></p>
 
 <h2>五、文化娱乐新闻精选</h2>
 <h3>2010年台北国际书展 以崭新风格揭开序幕</h3>
 <p>2010年台北国际书展，昨（27）日在台北世贸中心正式揭幕，展开一连六日的展示，今年，共有58国883个参展单位，以2153个摊位进行展示，再度刷新展览规模。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/63074220.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/63074220.shtml</code></p>
 
 <h3>美国诗人格吕克获诺贝尔文学奖</h3>
 <p>美国女诗人格吕克获得了今年的诺贝尔文学奖，评委们毫无疑问对她的作品诗意赞不绝口。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/96400862.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/96400862.shtml</code></p>
 
 <h3>2008年香港贺岁烟花汇演 京奥高清成主打</h3>
 <p>为迎接农历新年及北京奥运的来临，本年度的香港贺岁烟花汇演将再创新猷，市民将可以首次看到「北京」及「2008」字样的烟花，并配合奥运主题曲作背景音乐衬托，预祝北京奥运顺利举行。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/95145079.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/95145079.shtml</code></p>
 
 <h3>2008香港书展开幕</h3>
 <p>一年一度的香港书展，今早9时在湾仔会议展览中心开幕，大清早已有约500人在会展外排队入场。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/91899095.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/91899095.shtml</code></p>
 
 <h3>北京实施单双号隔日行车</h3>
 <p>北京由今天开始，实施奥运期间交通管制，汽车要依车牌单双号隔日行驶。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/44939277.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/44939277.shtml</code></p>
 
 <h3>2008年台北国际艺术博览会 国际文艺精髓 汇聚台北世贸</h3>
 <p>2008年台北艺术节系列活动─台北国际艺术博览会，今（29）日一连五天，在台北世贸一馆A、D区正式开幕，除了文创产业的力挺，本次在台北世贸中心的展览，共有111个参展单位，包含来自美国、法国、西班牙、荷兰、印度、日本、韩国、新加坡、印尼、中国大陆的39家国外画廊，将向国内外参观者，宣誓文艺的无懈可击，这项展览是继北京艺术博览会在五月成功办理后，另一个国际级艺术博览展。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/90350389.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/90350389.shtml</code></p>
 
 <h3>上海庆祝浦东开发开放30周年</h3>
 <p>当日晚上，上海大剧院举行了庆祝浦东开发开放30周年文艺晚会，中共中央政治局委员、上海市委书记李强，市委副书记、市长龚正，市人大常委会主任蒋卓庆，市政协主席董云虎，市委副书记于绍良及上海、浦东各界人士代表观看演出。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/69493732.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/69493732.shtml</code></p>
 
 <h3>2008香港书展结束创入场人数新高</h3>
 <p>一连7天的香港书展今晚结束，主办机构贸易发展局指今年书展总入场人次近83万，打破历届纪录，和去年相比上升超过8%。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/30030941.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/30030941.shtml</code></p>
 
 <h3>陈凯歌新作《搜索》剧组入驻宁波诺丁汉大学拍摄</h3>
 <p>据宁波诺丁汉大学官方新浪微博透露，由陈凯歌导演，姚晨主演的电影《搜索》摄制组将于10月28日下午在该校进行外景拍摄，具体地点是该校行政楼与SSB教学楼之间的草坪。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/55355187.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/55355187.shtml</code></p>
 
 <h3>被指攻击《无职转生》 B站封禁直播主LexBurner</h3>
 <p>2月1日，LexBurner在直播中提及动漫《无职转生》并对其中的内容做出了评价。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/95757287.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/95757287.shtml</code></p>
 
 <h3>中国网络大胃王“吃播”节目遭到整治</h3>
 <p>北京日报等媒体报道，中国网络大胃王“吃播”节目率先遭到整治；一名在短片平台“抖音”以烤整只骆驼闻名中国的直播网红，其所有影片都已下架。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/82438717.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/82438717.shtml</code></p>
 
 <h3>《拉丁美洲两百天》一书的发布会在莫斯科举行。</h3>
 <p>2026年1月17日，一部以旅行散文体裁写成、带有冒险元素的文学作品在莫斯科格里博耶多夫第一图书馆展出。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/96772955.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/96772955.shtml</code></p>
 
 <h3>街机音游进入新格局 业者：创意决定生命周期</h3>
 <p>A：一款游戏的游玩族群，以及被广泛接受的程度，可以决定一款系列作品的成败，倘若能透过比赛进行交流，并在乐曲的选材上，有更新颖的创意，就可以让一款音乐游戏系列作品，获得最佳的生命周期。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/94464806.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/94464806.shtml</code></p>
 
 <h3>首届PeoPo公民新闻奖 展现台湾人文关怀</h3>
 <p>根据主办的公广集团表示，这个奖项是由旗下PeoPo网站创立，并且是台湾第一次针对公民新闻所进行的表扬仪式，借以鼓励公民记者透过人文关怀，跳脱商业媒体议题，展现台湾的另一面。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/49405766.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/49405766.shtml</code></p>
 
 <h3>特工次时代即将制成动画电影 预定2017年上映</h3>
 <p>于1997年刊登于讲谈社旗下杂志的《特工次时代》，日前于圣迭戈国际漫画展展览其中一个活动「Spotlight on Tsutomu Nihei」中公布将会制作并于2017年上映其动画电影。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/85979386.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/85979386.shtml</code></p>
 
 <h3>英国设计师兰比奈恩逝世</h3>
 <p>英国著名设计师兰比奈恩（Martin Lambie-Nairn）逝世，终年75岁。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/25498929.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/25498929.shtml</code></p>
 
 <h3>中国选手郭文珺夺得女子10米气手枪冠军</h3>
 <p>在刚刚结束北京奥运会女子10米气手枪决赛中，中国选手郭文珺夺得冠军。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/92329290.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/92329290.shtml</code></p>
 
 <h3>资深艺人李香琴逝世 享年88岁</h3>
 <p>香港资深艺人李香琴逝世，享年88岁。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/23021522.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/23021522.shtml</code></p>
 
 <h3>克里米亚音乐展 展异国民族歌曲</h3>
 <p>5月17日，克里米亚首府一博物馆开设「地方风情音乐集」特展，展出个人珍藏百件异国民族音乐唱片。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/92467378.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/92467378.shtml</code></p>
 
 <h3>第二十九届奥林匹克运动会结束闭幕仪式伦敦接棒</h3>
 <p>第二十九届奥林匹克运动会所有赛事结束，17日赛事共颁发302面金牌，中国占51面，成为金牌数目之冠，亦是中国于奥运史上夺金最多的一届。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/22065516.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/22065516.shtml</code></p>
 
 <h3>香港M+博物馆将《北京杂种》改叫「张元作品」</h3>
 <p>香港M+博物馆日前放映1993年中国独立电影《北京杂种》，但在官网显示的片名为「张元作品」，比原片短3分钟。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/92351639.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/92351639.shtml</code></p>
 
 <h3>《南梦宫合集》下载版闹乌龙</h3>
 <p>6月18日，日本游戏厂商万代南梦宫娱乐在其新发游戏《南梦宫合集》的官网上发表声明称，因该游戏在Nintendo eShop上发售的DLC与玩家购买后实际得到的DLC不同，公司将对该游戏DLC购买出错的原因进行调查，并暂停该游戏在Nintendo eShop上的购买下载服务，待查明原因后重新开始发售下载版。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/88826682.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/88826682.shtml</code></p>
 
 <h3>旅游应用猫途鹰在中国被下架</h3>
 <p>中国政府在新一轮网络整顿运动中把105个应用程序从中国应用程式商店中移除，美国旅游资讯应用程序猫途鹰（TripAdvisor）也在其中。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/11319418.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/11319418.shtml</code></p>
 
 <h3>国际奥委员取消伊拉克参加奥运资格</h3>
 <p>伊拉克接获国际奥委会信件，正式通知已经取消了伊拉克参加2008年北京奥运的资格。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/88280897.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/88280897.shtml</code></p>
 
 <h3>国际设计论坛与Designhouse合作 在南韩设立新据点</h3>
 <p>今（2）日在南韩首尔，iF与韩国当地知名设计公司Designhouse合作，正式成立iF南韩分公司，这是继台湾之后，iF在亚洲设立的第二个分公司。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/63729881.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/63729881.shtml</code></p>
 
 <h3>《风吹稻浪》荣获戛纳电影节大奖</h3>
 <p>英国导演执导的《风吹稻浪》一片获得第59届戛纳国际电影节金棕榈大奖。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/97980855.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/97980855.shtml</code></p>
 
 <h3>杰出华人指挥家张弦 与港乐共谱美国情怀</h3>
 <p>香港管弦乐团(港乐)呈献「太古新力量音乐会—美人美乐」，将其中几首扣人心弦的美国旋律活灵活现地重现。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/56359590.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/56359590.shtml</code></p>
 
 <h3>2010年台北国际电玩展 众星云集 带动参观人潮</h3>
 <p>2010年台北国际电玩展进入倒数阶段，周六因为调整春节连续假期的关系，成为弹性上班日，使得本届展览成为历年来仅碰上一个假日的记录，然而，在各厂商前三日多半邀来艺人站台，加上学校寒假的关系，只有一个假日的电玩展，并未因为弹性上班日以及天候略微转变的关系而减少，反而吸引更多玩家参观。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/68943898.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/68943898.shtml</code></p>
 
 <h3>倡「平安奥运」北京保安加强</h3>
 <p>北京最近提倡「平安奥运」，除加强保安措施，亦收紧签证，以确保奥运能平安进行。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/63338909.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/63338909.shtml</code></p>
 
 <h3>俄摄影师横跨四大洲拍原住民</h3>
 <p>俄罗斯摄影师平丘克花费二十年时光，深入非洲、亚洲、拉丁美洲和大洋洲的原始部落，用镜头捕捉土著居民的真实生活面貌。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/45331948.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/45331948.shtml</code></p>
 
 <h3>印度北部出现严重雾霾</h3>
 <p>印度首都新德里等北部地区出现了严重的雾霾，空气污染程度远远超过了世界衞生组织的安全标准，这个问题与人们庆祝排灯节，不遵守烟花爆竹禁令有关。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/72599032.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/72599032.shtml</code></p>
 
 <h3>台南林百货将开放参观，为期约两个月</h3>
 <p>台南市市定古迹林百货在今年年初修复完工之后，将于6月30日起到8月31日期间，于每周三到周日的上午十点到下午五点开放民众参观。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/48064837.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/48064837.shtml</code></p>
 
 <h3>2008台北国际书展 一种单纯的小说 多种风格的展现</h3>
 <p>而在今年的台北国际书展中，各出版商展示的小说作品，就显出了不同的写作风格，而在周六、日（16、17日）的《赴宴者》（The Banquet Bug）座谈会与小说创作座谈会，就是标准的范例。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/79394084.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/79394084.shtml</code></p>
 
 <h3>中国考古学家谭维四逝世</h3>
 <p>据湖北省博物馆微信公众号消息，中国著名考古学家、武汉大学考古专业创始人之一、湖北省博物馆原馆长谭维四于9月7日7时38分（UTC+8）医治无效，在武汉逝世，享年91岁。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/56696604.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/56696604.shtml</code></p>
 
 <h3>台南三山国王庙修缮计划受阻</h3>
 <p>台南三山国王庙为国定古迹，具有独特的潮州式风格，然而由于年久失修，以致庙宇多处斑驳。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/91550011.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/91550011.shtml</code></p>
 
 <h3>孟加拉富人仿建泰姬陵</h3>
 <p>孟加拉国的一位富有的电影导演莫尼耗资5800万元在首都达卡东兴建了一座仿制的泰姬陵，此举引发了建筑设计版权的争议。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/78639628.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/78639628.shtml</code></p>
 
 <h3>台南知事官邸今日举办赛德克·巴莱剧照展</h3>
 <p>今日起在台湾台南市东区的知事官邸将举办电影赛德克·巴莱的剧照展与多媒体展，将展出110件未公开的剧照。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/14845879.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/14845879.shtml</code></p>
 
 <h3>2007年香港贺国庆烟花汇演 08、10现天空</h3>
 <p>本年度的香港贺国庆烟花汇演，除了固有的「迎京奥」及特区成立十周年的内容外，近期大热的哈利波特及刚身故的巴伐洛堤，亦成为了烟花汇演的主题。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/80996142.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/80996142.shtml</code></p>
 
 <h3>武汉数千人无遵从防疫措施参加派对</h3>
 <p>在中国确诊人数最多的湖北武汉，成千上万的人在水上乐园参加大型活动，不按防疫措施行事。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/82649908.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/82649908.shtml</code></p>
 
 <h3>在科伦坡与一位俄罗斯旅游作家会面</h3>
 <p>2026年2月6日，在位于科伦坡独立大道上的斯里兰卡国家图书馆，俄罗斯旅行作家维克多·平丘克举行了一次创意会议。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/65035125.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/65035125.shtml</code></p>
 
 <h3>巴哈姆特电玩资讯站 欢庆十一周年 凝聚台湾电玩族群向心力</h3>
 <p>台湾知名电玩社群暨媒体网站「巴哈姆特电玩资讯站」，今（29）日在台湾大学体育馆进行十一周年庆祝活动，除了往年都会进行的「Cosplay竞赛」、「电玩通」等活动，另外也在现场公布了网路玩家票选的「十大电玩新闻」，当中，如依照平台分类的分析，个人电脑与PS3的项目各占三名，Wii与Xbox 360则各占两名，而最受到瞩目的产业新闻，则是「PS3台湾版专用机种的问世」。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/59156914.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/59156914.shtml</code></p>
 
 <h3>香港政府拟向确诊者发放津贴</h3>
 <p>香港食物及衞生局发言人指，政府将为本地感染确诊者发放一笔过5000港元的津贴。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/46834829.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/46834829.shtml</code></p>
 
 <h3>台中纺织时尚周、北京中国服饰展 为2008台北魅力展打通关</h3>
 <p>纺织产业界的夏季盛会─2008台北魅力国际时尚展，预定于7月10日─13日在台北展演二馆亮相，除了有众多结合新技术的福是，将在这项展览问世外，主办的中华民国纺织业外销拓展会（纺拓会）为了要帮这项展览暖身，在近期，特别选择目前在北京中国国际展览中心W2馆举办的「2008年中国国际服装服饰博览会」，以及配合大甲镇澜宫文化节举行的「2008 FUSE 台中纺织时尚周」，做为台湾设计师展现纺织技术成果的两大舞台。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/39260485.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/39260485.shtml</code></p>
 
 <h3>2018年香港电影金像奖颁奖典礼</h3>
 <p>第37届香港电影金像奖颁奖典礼晚上假尖沙咀香港文化中心举行，全晚总共颁发21个奖项，当中最佳电影由《明月几时有》赢得，古天乐及毛舜筠分别凭《杀破狼·贪狼》及《黄金花》赢得最佳男女主角奖项。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/21701670.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/21701670.shtml</code></p>
 
 <h3>东京奥运会开幕式收视率创新低</h3>
 <p>2020年东京奥运会开幕式收视率创新低。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/46421349.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/46421349.shtml</code></p>
 
 <h3>鞑靼语「维基马拉松」在鞑靼斯坦启动</h3>
 <p>鞑靼语委员会与俄罗斯维基媒体分会（Wikimedia RU）和鞑靼语用户组共同发起了第一次国际维基马拉松，在鞑靼语维基百科上撰写关于该地区地理、文化、历史和现代性的文章。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/43074029.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/43074029.shtml</code></p>
 
 <h3>北京奥运第四阶段门票售罄</h3>
 <p>北京奥运第四阶段，亦即最后阶段的奥运门票销售已经结束，七万三千多张门票在凌晨3时售罄。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/91392614.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/91392614.shtml</code></p>
 
 <h3>多部贺岁电影为疫情“让路”</h3>
 <p>从1月23日开始，原定于春节期间上映的多部电影纷纷宣布由于近期的新型冠状病毒肺炎疫情撤出春节档期。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/24498917.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/24498917.shtml</code></p>
 
 <h3>2008年工业局手提包创新设计竞赛 柯佩纬「随心所欲」夺金</h3>
 <p>经济部工业局挖掘并培养国内手提包产业设计新秀的「手提包创新设计竞赛」，今年是第七度的举行，并且结合了「Project Bornway鞋样设计竞赛」，一同发掘台湾的时尚设计菁英。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/68058743.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/68058743.shtml</code></p>
 
 <h3>2006年度超级女声正式启动</h3>
 <p>2006年4月2日，广受欢迎的娱乐选秀节目超级女声宣布正式启动，正式名称为2006快乐中国蒙牛酸酸乳超级女声。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/33521499.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/33521499.shtml</code></p>
 
 <h3>刘翔预赛因伤退赛 告别北京奥运会</h3>
 <p>这样，备受关注的刘翔告别了北京奥运会的赛场。<br>
- | 来源：<code>https://xyockf.cn/ArTicle/details/40983041.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/40983041.shtml</code></p>
 
 <h3>北京人民艺术剧院院长任鸣逝世</h3>
 <p>据报，北京人民艺术剧院院长、中国导演任鸣因病医治无效，于6月19日19时29分在北京逝世，享年62岁。<br>
- | 来源：<code>https://yrnelt.cn/ArTicle/details/79976010.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/79976010.shtml</code></p>
 
 <h3>陈霆当选2008维基媒体理事</h3>
 <p>2008维基媒体理事选举结果已于26日公布，经理事会核实后，当选者为陈霆。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/77366971.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/77366971.shtml</code></p>
 
 <h3>陈慧琳宣布结婚</h3>
 <p>香港艺人陈慧琳本月18日晚，在红磡体育馆举行的「陈慧琳Love Fighters演唱会08」最后一场演唱会上，公开宣布结婚，现场歌迷起哄欢呼拍掌支持，令Kelly感动落泪。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/34074651.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/34074651.shtml</code></p>
 
 <h3>文王遗言武王乐诗面世 清华竹简有新进展</h3>
 <p>去年7月由清华大学校友捐赠，十月由清华大学宣布为“为中国战国时期的重要文物，大多在迄今已经发现的先秦竹简中还没有见到过，其涉及到中国传统文化的核心内容，是前所罕见的重大发现”的《清华简》，有了确定的研究进展。<br>
- | 来源：<code>https://vmuyif.cn/ArTicle/details/39692993.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/39692993.shtml</code></p>
 
 <h3>柏立社切换为在自由版权上发布</h3>
 <p>2020年11月18日，以Telegram频道为发布平台的新闻媒体──柏立社将全部文字，在公有领域之条款下提供予维基新闻。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/19587342.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/19587342.shtml</code></p>
 
 <h3>世界旅游日，和克里米亚探险家平丘克聊聊</h3>
 <p>9月27日是由联合国旅游组织（前称世界旅游组织）设立的世界旅游日。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/46799587.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/46799587.shtml</code></p>
 
 <h3>华人群像纪录片影展映后连线艾未未视讯现身</h3>
 <p>由台湾诚品书店和香港阳光卫视合作举办的「我们的二三事」华人群像纪录片影展在17日晚上播放《一个孤僻的人》，内容是艾未未工作室历时两年追踪和拍摄杨佳案的发展。<br>
- | 来源：<code>https://xgieut.cn/ArTicle/details/88393269.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/88393269.shtml</code></p>
 
 <h3>2008台湾创意达人设计竞赛 环保议题整合 参赛族群年轻化</h3>
 <p>由经济部工业局指导，台湾创意设计中心主办，台湾爱普生科技公司赞助的「2008台湾创意达人设计大赛」，今日正式公布得奖名单，在此之前，主办群邀请了多位设计界的名人，针对学生组与专业组进行专业奖项的评审，并开放网友投票来选出人气奖，而今年则是由吴承凡以作品「万种商品的可能性」，获得学生组，也是本比赛唯一的金奖，成为最大赢家。<br>
- | 来源：<code>https://yisdzc.cn/ArTicle/details/58190190.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/58190190.shtml</code></p>
 
 <h3>刘慈欣小说《三体》获雨果奖</h3>
 <p>美国当地时间22日8：00，第73届雨果奖在美国华盛顿州斯波坎会议中心正式揭晓，中国作家刘慈欣凭借小说《三体》成功夺得此奖。<br>
- | 来源：<code>https://xkolmn.cn/ArTicle/details/86322712.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/86322712.shtml</code></p>
 
 <hr>
 <h2>素材出处与说明</h2>

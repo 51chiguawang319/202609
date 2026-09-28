@@ -5,1207 +5,1207 @@
 <h2>一、体育赛事新闻精选</h2>
 <h3>新光摩天大楼与台北101 两大登高赛同台较劲</h3>
 <p>新光人寿保险摩天大楼与台北101，今天（5月5日）都不约而同地，举行了登高比赛，前者自办的登高比赛，已经进入23届，后者则是由励馨基金会与台北101合作，举办名为「2007年台湾优力国际慈善登高活动」的慈善登高赛，可见台北市的登高热潮。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/10730954.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/10730954.shtml</code></p>
 
 <h3>台湾演艺圈、体育界 参与「adidas为决胜北京而跑」 响应2008北京奥运</h3>
 <p>虽然「2008北京奥运圣火」持续在欧美各国传递，并发生不少冲突与争端，但今（20）日（台北时间）在台湾台北市，由-{zh-hans:阿迪达斯;zh-hant:爱迪达}-举办，并获得超级篮球联赛球员、演艺圈力挺的「adidas为决胜北京而跑」，除了要拉回奥运圣火遭到抗争的低迷气息，更有为跆拳道选手朱木炎与杨淑君，加持奥运夺金的效果。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/21936106.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/21936106.shtml</code></p>
 
 <h3>2007年香港国际赛事落幕 莲华生辉好爸爸大热胜出 迪诺医生夺碗 威满蹄击败爆冷夺杯</h3>
 <p>总结是次国际赛，香港代表凭莲华生辉及好爸爸夺得两项锦标，而法国和阿联酋代表则凭迪诺医生及威满蹄各胜一场。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/76812074.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/76812074.shtml</code></p>
 
 <h3>利物浦四将建功 红军客场5-1大胜喜鹊</h3>
 <p>英国伦敦时间12月28日，2008－09赛季英格兰足球超级联赛第20轮一场焦点战役在圣詹姆斯公园球场打响，利物浦队史蒂文·杰拉德梅开二度，萨米·海皮亚、瑞恩·巴贝尔和哈维·阿隆索各入一球，帮助红军客场5-1大胜纽卡斯尔。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/77533336.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/77533336.shtml</code></p>
 
 <h3>香港甲足东方对杰志李健和老马有火</h3>
 <p>快意空调甲组足球联赛昨日旺角场双料娱乐，分别是四海对香雪上清饮，以及东方对杰志，总入场人数787人，购票人数504人。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/41727519.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/41727519.shtml</code></p>
 
 <h3>台湾台北市进入听障奥运年 郝龙斌：要以听奥向世界发声</h3>
 <p>众所瞩目的大会主席暨台北市长郝龙斌，除了参加昨（31）日的跨年晚会，更在宣誓大会中表示：「没有企业团体与各界的鼎力支持，听障奥运的筹备，会步履艰辛，因为这项奥运四家族之一的国际盛会，是（中华台北）听障者体育运动协会，在2001年罗马听障奥运期间，争办2009年听奥赛会时，努力得来的成果；我希望所有选手，好还要更好，再度提升个人的佳绩，更希望这项赛会，不只是荣耀台北，更要荣耀台湾，让台北走出全世界，与世界互动。」<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/53484820.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/53484820.shtml</code></p>
 
 <h3>捷克女子气步枪选手夺北京奥运第一金</h3>
 <p>北京奥运开幕，所有比赛于今日展开，并已诞生第一面金牌，由捷克女子气步枪选手夺得。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/78000655.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/78000655.shtml</code></p>
 
 <h3>英国女子公开赛第三轮赛事成绩</h3>
 <p>英国女子公开赛第三轮赛事中，69的不动裕里(Yuri Fudoh)，以负13的203，继续排名第一。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/32385058.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/32385058.shtml</code></p>
 
 <h3>悉尼马拉松首次以大满贯巡回赛身份举行</h3>
 <p>2025年8月31日，悉尼马拉松正式以世界马拉松大满贯第七成员的身份亮相，悉尼马拉松成为南半球首个也是唯一一个马拉松大满贯赛事。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/84395451.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/84395451.shtml</code></p>
 
 <h3>高尔夫葡萄牙大师赛第四轮赛事成绩</h3>
 <p>阿尔瓦罗．奎罗斯(Alvaro Quiros)赢得葡萄牙大师赛冠军。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/72858665.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/72858665.shtml</code></p>
 
 <h3>美国印第赛车联盟开锣日意外 新秀车手赛前练习时撞车身亡</h3>
 <p>美国印第赛车联盟 (I.R.L.) 2006赛季一开锣就发生严重事故，新秀选手保罗·得纳 (Paul Dana) 于3月26日赛前练习时撞车，终告不治，享年30岁。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/16077647.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/16077647.shtml</code></p>
 
 <h3>高尔夫北欧大师赛第四轮赛事成绩</h3>
 <p>彼得．汉森(Peter Hanson)赢得北欧大师赛的冠军。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/97631465.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/97631465.shtml</code></p>
 
 <h3>台北世大运开幕式民众抗议 代表团延迟进场</h3>
 <p>2017年夏季世界大学运动会在台北市举办，但开幕式遭到当地社会团体抗议，导致代表团进场延误。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/25256425.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/25256425.shtml</code></p>
 
 <h3>文化创意产业 力挺2009夏季听障奥运 让无声更有声</h3>
 <p>距离2009夏季听障奥运尚有一年半的时间，地主台北市政府仍在积极筹建比赛场馆的同时，文化创意产业的名人，也是知名导演赖声川，在即日起，正式成为2009听奥筹委会的创意总监。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/62830263.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/62830263.shtml</code></p>
 
 <h3>汇丰锦标赛第三轮赛事成绩</h3>
 <p>奥利弗．威尔逊(Oliver Wilson)打出负3的69杆，总成绩负12，排名第一。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/58029268.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/58029268.shtml</code></p>
 
 <h3>高尔夫拉斯维加斯公开赛第三轮赛事成绩</h3>
 <p>拉斯维加斯公开赛第三轮赛事中，69的马克．特纳萨(Marc Turnesa)以总成绩195，排名第一。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/20094041.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/20094041.shtml</code></p>
 
 <h3>2008年欧洲国家杯八强赛 德国率先晋身四强</h3>
 <p>2008年-{zh-hant:欧洲国家杯;zh-hans:欧洲足球锦标赛}-在6月19日进行八强第一场赛事，由德国对葡萄牙。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/19729385.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/19729385.shtml</code></p>
 
 <h3>台湾选手杨淑君亚运遭判失格引发争议</h3>
 <p>杨淑君遭判失格一事在媒体大幅报导下引发民众的反韩情绪，部份激进人士更到体委会前焚烧韩国国旗以示抗议，台湾各地也传出抵制韩国商品的消息。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/92615427.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/92615427.shtml</code></p>
 
 <h3>2008年欧洲国家杯决赛：西班牙击败德国夺冠</h3>
 <p>2008年-{zh-hant:欧洲国家杯;zh-hans:欧洲足球锦标赛}-在6月29日于奥地利维也纳恩斯特·哈佩尔球场举行决赛，由西班牙对德国。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/47206567.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/47206567.shtml</code></p>
 
 <h3>2010年世界杯足球赛：巴拉圭打和新西兰无碍首名出线</h3>
 <p>2010年世界杯足球赛F组赛事巴拉圭对新西兰赛事在波罗克瓦尼2010年世界杯足球赛举行，最终双方以0-0握手言和。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/56015550.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/56015550.shtml</code></p>
 
 <h3>AT&amp;T全国锦标赛第四轮赛事成绩</h3>
 <p>汤姆．佩尼斯(Tom Pernice)于AT&amp;T全国锦标赛第四轮赛事中，大热倒灶。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/38002674.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/38002674.shtml</code></p>
 
 <h3>2007世界听障游泳锦标赛 第二日竞争激烈 加赛不断</h3>
 <p>2007世界听障游泳锦标赛，今日进入第二天赛程，50公尺蝶式、100公尺仰式、400公尺个人混合的比赛，皆在本日出现优胜者，而在考验体力与耐力的两项中长距离项目─男子1500公尺与女子800公尺的比赛，则先在上午进行预赛，之后将于明日一决高下。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/15419324.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/15419324.shtml</code></p>
 
 <h3>欧洲联赛冠军杯四强第一回合 利物浦与车路士打成平手</h3>
 <p>-{zh-hk:2007-08年欧洲联赛冠军杯;zh-hant:2007-08年欧洲冠军联赛;zh-hans:2007-08年欧洲冠军联赛}-进入四强第一回合的比赛，在欧洲时间星期二晚上在利物浦举行利物浦对-{A|zh-hans:切尔西;zh-hant:切尔西;zh-hk:车路士}-。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/32680179.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/32680179.shtml</code></p>
 
 <h3>2008年欧洲足协杯决赛 俄罗斯球队再次夺冠</h3>
 <p>2007年至2008年-{zh-hans:欧洲联盟杯;zh-hant:欧洲联盟杯;zh-hk:欧洲足协杯}-于5月14日晚上在英格兰的曼彻斯特城市球场举行，决赛的球队是俄罗斯球队-{zh-hans:泽尼特;zh-hant:泽尼特;zh-hk:辛尼特}-对苏格兰球队格拉斯哥-{zh-hant:游骑兵;zh-hans:流浪者;zh-hk:流浪}-。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/83515140.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/83515140.shtml</code></p>
 
 <h3>世界冰球锦标赛 港队赛事又播错国歌</h3>
 <p>近日，在世界冰球锦标赛的赛场上，港队赛事再次出现播错国歌的情况。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/94809205.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/94809205.shtml</code></p>
 
 <h3>比赛拆中华民国国旗 中国大陆选手遭DQ</h3>
 <p>在印尼举行的「澳洲-亚洲手枪射击锦标赛」开幕礼上，有三名中国大陆选手企图拆走中华民国国旗，被台湾选手兼裁判陈品佑当场制止。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/83647810.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/83647810.shtml</code></p>
 
 <h3>美国女子公开赛第二轮赛事成绩</h3>
 <p>巴西球员安吉拉．帕克(Angela Park)于美国女子公开赛第二轮赛事中，以打出低于标准杆6杆的67杆，总成绩低于标准杆6杆的140杆，排名第一。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/81391190.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/81391190.shtml</code></p>
 
 <h3>2014年巴西世界杯正式开幕</h3>
 <p>2014年6月12日下午（北京时间2014年6月13日凌晨），2014年巴西世界杯在巴西圣保罗体育场举行。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/48321818.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/48321818.shtml</code></p>
 
 <h3>2008舒跑杯、台湾自行车日 台北市同日举行 展现运动城市形象</h3>
 <p>反观基隆河边的大佳河滨公园，专为自行车好手设计，也是行政院体委会主力推广的「台湾自行车日」，不只台北市以外的24县市同步呼应，以及众多企业与社团的响应，甚至，在终点端的总统府前广场，还举行了环台认证、花车创意游行等活动，一次就把台北市的主场声势拉到最高点，也成功地打了一张「运动牌」。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/89225029.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/89225029.shtml</code></p>
 
 <h3>高尔夫职业锦标赛第二轮赛事成绩</h3>
 <p>职业锦标赛(PGA Championship)第二轮赛事中，J.B.霍姆斯(J.B. Holmes)以负2的68，以总成绩负1的139，排名第一。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/25057581.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/25057581.shtml</code></p>
 
 <h3>高尔夫英国公开赛第四轮赛事</h3>
 <p>帕卓．哈灵顿(Padraig Harrington)卫冕英国公开赛的冠军。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/98419112.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/98419112.shtml</code></p>
 
 <h3>2007年ING台北国际马拉松 非洲选手包办男女总冠军</h3>
 <p>一年一度，并且是第四年由ING安泰人寿赞助的「台北国际马拉松」，今日上午六时开幕，两万名以上的竞赛选手，也在七点钟准时起跑，并根据国际标准，采用「ChampionChip」晶片计时器，以维持比赛的公正性，虽然所有选手的出发花了20分钟左右完成，但与去年相比，起跑的秩序明显改善不少。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/47150683.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/47150683.shtml</code></p>
 
 <h3>2010年世界杯足球赛：德国4-0大胜阿根廷，高路斯入两球平同胞纪录</h3>
 <p>2010年世界杯八强赛事阿根廷对德国的赛事在开普敦绿点球场举行。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/97303001.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/97303001.shtml</code></p>
 
 <h3>2008年东吴国际24小时超级马拉松 关家良一继续卫冕 有欢喜也有感动</h3>
 <p>台湾超级马拉松界的顶尖盛会─2008年东吴国际24小时超级马拉松，昨（13）日展开24小时的耐力比拼，主办的东吴大学，为了要帮助在九月份因远征外国参赛而截肢，且正在休养的台湾女子超马名将邱淑容，特别将主题定位为「跑出希望、跑出爱」，吸引众多好手以「认圈募款」的方式，为邱淑容筹募复建经费。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/73645770.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/73645770.shtml</code></p>
 
 <h3>08香港甲组足球联赛开锣掀幕战南华对公民</h3>
 <p>上届足总杯冠军兼联赛亚军，有「南华克星」之称的公民，于今届甲组联赛的掀幕战便对著香港班霸南华。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/81755300.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/81755300.shtml</code></p>
 
 <h3>费城费城人夺第二个世界大赛冠军</h3>
 <p>经过两天连场下雨的休息后，世界大赛第五回合终于在昨天结果，结果费城费城人以4-3击败坦帕湾光芒，总场数以4-1击败光芒，夺得费城人队第二个世界大赛冠军。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/91350669.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/91350669.shtml</code></p>
 
 <h3>姚明正式宣布退役</h3>
 <p>北京时间2011年7月20日，中国著名篮球运动员姚明于上海浦东嘉里酒店正式宣布退役。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/33290856.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/33290856.shtml</code></p>
 
 <h3>高尔夫拉斯维加斯公开赛第四轮赛事成绩</h3>
 <p>马克．特纳萨(Marc Turnesa)赢得拉斯维加斯公开赛的冠军。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/81039526.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/81039526.shtml</code></p>
 
 <h3>加拿大蒙特利尔，当地时间22日凌晨发生大规模骚乱</h3>
 <p>由于加拿大人队大胜对手波士顿队再次赢球，球迷狂欢庆祝，升级为一场骚乱。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/14317832.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/14317832.shtml</code></p>
 
 <h3>英格兰超级足球联赛 利物浦5:1胜富咸</h3>
 <p>利物浦在昨天的英格兰超级足球联赛以5比1打破伦敦市的富咸，科拿射入回到利物浦的第一个入球，上半场15分钟，基维尔左路突破获得角球，在前柱接应的摩连迪斯头槌二传，随后的科拿头槌入球。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/76223887.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/76223887.shtml</code></p>
 
 <h3>避免两岸关系因体育而僵化 江苏南钢队与孟达纷纷致歉</h3>
 <p>在9月3日爆发海峡杯以来最严重的「架拐子事件」，以及台湾啤酒篮球队为保护安全与声誉拒绝出赛后，当事者江苏南钢队与球员孟达在受到舆论与各地华人的谴责下，先后于昨晚与今早公开道歉，因为本次事件的关系，中国篮球协会也勒令肇事者孟达立即回国接受调查。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/15170685.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/15170685.shtml</code></p>
 
 <h3>2010年世界杯足球赛：巴西三球净胜智利</h3>
 <p>2010年世界杯足球赛十六强赛事G组冠军巴西对:w:智利国家足球队，在约翰尼斯堡埃利斯公园球场举行。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/81231027.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/81231027.shtml</code></p>
 
 <h3>扶起跌倒对手 展现奥运精神</h3>
 <p>2016年巴西里约奥运，在当地时间（UTC-3）16日的田径比赛女子5000公尺预赛赛程中，比赛进行至第八圈，大约3200公尺时，美国选手艾比·迪阿寇斯蒂诺（Abbey D&#x27;Agostino）以及纽西兰选手妮基·汉布林（Nikki Hamblin）两人皆跌倒。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/67278974.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/67278974.shtml</code></p>
 
 <h3>北京奥运村开村运动员陆续入住</h3>
 <p>北京奥运村昨日正式开村启用，运动员陆续入住，首批住入运动员以中国国家队运动员为主。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/40845142.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/40845142.shtml</code></p>
 
 <h3>第二十九届奥林匹克运动会结束闭幕仪式伦敦接棒</h3>
 <p>第二十九届奥林匹克运动会所有赛事结束，17日赛事共颁发302面金牌，中国占51面，成为金牌数目之冠，亦是中国于奥运史上夺金最多的一届。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/44875474.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/44875474.shtml</code></p>
 
 <h3>自行车环台赛 屏东绕圈赛 香港抢下一城</h3>
 <p>这项111.2公里的绕圈比赛中，德国PZ队首先发动闪电攻击，再加上美国玛吉斯队柯马修（Matthew Crane）、澳洲保时捷队戴伦、捷安特亚洲队何欣（Hossein Askari）也不让德国PZ队专美于前，与其展开卡位战，而到第三圈后，日本爱三队广濑敏、香港队邓宏业、泰国队科姆桑（Komsan Karnbanchee）首先成为第一领先团，而捷安特亚洲队的台湾选手彭贵祥则是第二集团的13人先锋，并在随后将第一集团领先群超越。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/56444514.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/56444514.shtml</code></p>
 
 <h3>2008国际自由车环台赛 南港馆将纳入比赛行列</h3>
 <p>即将满20岁的「国际自由车环台赛」，预定于3/9从高雄出发，展开高雄市、屏东县、彰化县、台中市、新竹、台北县、台北市等八场不同路线的竞赛，与往年不同的是，今年的公路与绕圈赛，都将以县市辖区内为主轴，因此，去年出现的跨县市长距离赛，今年将确定不会出现。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/89665639.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/89665639.shtml</code></p>
 
 <h3>东京奥运开幕式场外 反对者仍在游行抗议</h3>
 <p>但在新国立竞技场场外，反对东京奥运会开幕的人群仍在游行示威，示威人群与现场警方发生了冲突。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/91182686.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/91182686.shtml</code></p>
 
 <h3>北京奥运会违规使用禁药再添三例</h3>
 <p>国际奥委会常务委员会于瑞士洛桑当地时间12月11日做出裁决：因在北京奥运会上违规使用禁药，分别剥夺白俄罗斯链球选手瓦季姆·杰维亚托夫斯基与伊万·蒂克汉在北京奥运会取得的链球银牌和铜牌成绩，剥夺波兰皮划艇选手亚当·塞罗琴斯基的北京奥运会男子双人皮艇1000米第四名的成绩。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/77258390.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/77258390.shtml</code></p>
 
 <h3>高尔夫温丹锦标赛第四轮赛事成绩</h3>
 <p>瑞典球手卡尔．佩特森(Carl Pettersson)赢得温丹锦标赛(Wyndham Championship)的冠军。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/81552161.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/81552161.shtml</code></p>
 
 <h3>高尔夫英国公开赛第二轮赛事成绩</h3>
 <p>英国公开赛第二轮赛事里，崔京周(KJ Choi)排名第一。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/17975614.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/17975614.shtml</code></p>
 
 <h3>2008年欧洲国家杯开幕战 主办国瑞士被捷克击败</h3>
 <p>2008年欧洲-{zh-hant:国家杯;zh-hans:足球锦标赛}-在6月7日举行揭幕战，由东道主瑞士对捷克，在巴素尔的圣雅各布公园球场举行。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/96344904.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/96344904.shtml</code></p>
 
 <h3>2010年台北舒跑杯路跑赛 打造健康快乐形象</h3>
 <p>在台中已有近三十年历史的资深路跑竞赛─「舒跑杯路跑赛」，今（2）日是台北市的第八年举办，为了结合台北市将举办的花卉博览会，本次的路跑比赛仍以健康与快乐的主形象，吸引参赛者报名参与这项盛会，据主办单位统计，休闲组与竞赛组的规模，与每年的台北三星活力路跑不相上下，皆有上万之规模。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/91797915.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/91797915.shtml</code></p>
 
 <h3>第五届渣打孟买马拉松 肯亚选手续保总排位领先地位</h3>
 <p>堪称「世界最强之战」的「渣打马拉松」，今日进行孟买站的比赛，而该站在今年是第五次办理，印度地区的炎热气候，加上路线设计被誉为「古印度文明的象征」，因此全球马拉松好手，势必要适应印度的热带气候，才有可能过得了这关。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/15317879.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/15317879.shtml</code></p>
 
 <h3>常青组英国公开赛第一轮赛事成绩</h3>
 <p>常青组英国公开赛第一轮赛事中，布鲁斯．瓦汉(Bruce Vaughan)与德瓦尔多．罗梅罗(Eduardo Romero)，均以负3杆的68杆，排名并列第一。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/12333222.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/12333222.shtml</code></p>
 
 <h3>奥运古巴跆拳道选手踢裁判被罚终身停赛</h3>
 <p>古巴跆拳道选手马托斯（Angel Matos）于北京奥运跆拳道男子80公斤以上级铜牌战中，因不满被判罚出局，联同教练攻击裁判，被罚终身停赛。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/12149090.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/12149090.shtml</code></p>
 
 <h3>2007世界听障游泳锦标赛 欧陆列强首日窜起</h3>
 <p>2007世界听障游泳锦标赛，本日起一连五天，在国立体育学院游泳池进行正式赛，200公尺蝶式、50公尺自由式、100公尺蛙式、200公尺自由式四人接力赛首先登场，包括夺牌热门选手，希腊的邓塔斯（Grogios Dontas）与乌克兰的里特维宁科（Ganna Lytvnenko），皆在第一日的比赛中亮相。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/34028086.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/34028086.shtml</code></p>
 
 <h3>NBA总决赛：洛杉矶湖人第十五次夺冠</h3>
 <p>湖人队是历来晋身NBA总决赛最多的球队，总共晋身三十次季后赛，夺得今届总冠军后，已经是第十五次夺冠。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/54242274.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/54242274.shtml</code></p>
 
 <h3>2010年世界杯足球赛：荷兰爆冷淘汰巴西</h3>
 <p>2010年世界杯足球场八强首场赛事是荷兰对巴西在曼德拉海湾球场上演。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/27238379.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/27238379.shtml</code></p>
 
 <h3>中国足协公布2025赛季职业联赛准入名单 沧州雄狮、广州队、湖南湘涛解散</h3>
 <p>今天下午14时，中国足球协会（以下简称“足协”）公布了2025赛季职业联赛俱乐部准入名单，上赛季参加职业联赛的沧州雄狮足球俱乐部（中超）、广州足球俱乐部（中甲，以下简称“广州队”）、湖南湘涛足球俱乐部（中乙）未能通过准入，随后沧州雄狮、湖南湘涛在官方微博发布公告宣布解散，当天晚上广州队也在官方微信公众号发布公告宣布解散。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/87863455.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/87863455.shtml</code></p>
 
 <h2>二、体育赛事新闻精选</h2>
 <h3>欧洲联赛冠军杯 AC米兰与些路迪携手出线</h3>
 <p>-{zh-hk:2007-08年欧洲联赛冠军杯;zh-hant:2007-08年欧洲冠军联赛;zh-hans:2007-08年欧洲冠军联赛}-在欧洲时间星期二晚上提早进行两场D组赛事，当中意大利球队AC米兰以1-0击败了苏格兰球队-{zh-hk:些路迪;zh-hant:凯尔特人;zh-hans:凯尔特人}-。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/49129152.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/49129152.shtml</code></p>
 
 <h3>2007年ING台北马拉松 进入倒数阶段 周边活动为正式赛加势</h3>
 <p>2007年ING台北马拉松进入倒数阶段，继11月的校际杯路跑赛与名人公益路跑后，近两周来的周边活动也持续地发烧，除了资讯月开幕期间的「抢衫活动」与「公益大使响应活动」外，在上周末的「志工人气王」与「啦啦队竞赛」，更因为来自台湾各地，不分老少的社会人士，以及校园团队的参与，将周边的活动带入最高峰。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/43492616.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/43492616.shtml</code></p>
 
 <h3>奥运前夕中国解禁多个网站</h3>
 <p>早前有记者投诉北京奥运主新闻中心多个网站无法连上，今日有多个网站解禁，包括国际特赦、无国界记者、德国之声、英国广播公司（BBC）、中文维基百科等等。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/98052983.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/98052983.shtml</code></p>
 
 <h3>2008年英国大奖赛：咸美顿进占榜首</h3>
 <p>沃达丰-{zh-hans:迈凯轮; zh-hant:迈凯伦; zh-hk:麦拿伦}-车队 -{zh-hans:刘易斯·汉密尔顿; zh-hant:刘易斯·汉弥尔顿; zh-hk:刘易斯·咸美顿}-赢得国际车联2008年一级方程式英国站比赛。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/28746562.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/28746562.shtml</code></p>
 
 <h3>2010年世界杯足球赛：希腊反胜大部份时间十人应战的尼日尼亚</h3>
 <p>2010年世界杯足球赛B组希腊对尼日尼亚，在自由州球场举行。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/61859088.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/61859088.shtml</code></p>
 
 <h3>中甲球队石家庄永昌改名 球迷组织解散抗议</h3>
 <p>变更手续完成后，石家庄蓝色狂潮、石家庄永之熠等球迷组织相继宣布解散或“退圈”；而冀之魂、冀足12人等球迷组织宣布永久退出永昌队的看台。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/64069523.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/64069523.shtml</code></p>
 
 <h3>AT&amp;T全国锦标赛第二轮赛事成绩</h3>
 <p>这一轮的赛事有多达七位球手排名第五，包括昨日领先的史蒂夫．莫尼诺(Steve Marino)。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/69448104.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/69448104.shtml</code></p>
 
 <h3>罗比基恩一千八百万英镑投利物浦</h3>
 <p>利物浦在球会官方网页公布，热刺前锋-{zh:罗比·基恩; zh-hans:罗比·基恩; zh-hant:罗比坚尼; zh-hk:罗比坚尼;}-以一千八百万英镑转会费转投利物浦，签下周薪八万镑的五年合约，再按表现可提升至二千万镑，是今季英超最昂贵的一宗转会，也是利物浦第二高转会费。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/15280768.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/15280768.shtml</code></p>
 
 <h3>NBA 2K8 亚洲电玩锦标赛 台湾展开现场竞赛序幕</h3>
 <p>自上月23日起展开线上对决的「NBA 2K8 亚洲电玩锦标赛」，今日在台北展开台湾站的现场竞赛，根据NBA的资料显示，本次的亚洲电玩巡回赛，分新加坡、台湾、香港、韩国等四站进行，除了新加坡仅进行线上对决，并将由「III Flo 2k III」代表新加坡参加总决赛外，其余的国家皆需要在现场竞赛与线上竞赛的优胜者进行对决后，方能决定代表选手。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/63644489.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/63644489.shtml</code></p>
 
 <h3>第三届海峡杯男子篮球赛将在香港举行</h3>
 <p>第三届「海峡杯」男子篮球赛，将于7月25日星期五在香港举行，到时来自两岸三地，包括香港、澳门、台湾、福建共四支男子篮球代表队将一决高下。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/93661763.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/93661763.shtml</code></p>
 
 <h3>2008年法国大奖赛：法拉利包办冠亚军</h3>
 <p>法拉利车手-{zh-hans:费利佩·马萨; zh-hant:费利佩·马萨; zh-hk:费利·马沙;}-赢得-{zh-hans:国际汽车联合会; zh-hant:国际汽车联盟;}-一级方程式2008年法国站冠军。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/83400597.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/83400597.shtml</code></p>
 
 <h3>台湾独立举办国际赛会能力 日益获得国际重视与瞩目</h3>
 <p>在近期，第三十七届世界杯棒球赛、台北101国际登高赛、东吴超级马拉松等比赛，都有学校体育志工的参与，也显现了运动赛会行政扎根教育界，以及台湾独立承办赛会的能力，而近期由中华奥会主办的「国际运动赛会经验传承研讨会」，则是针对2009年即将在台北市与高雄市举行的夏季听障奥运会与世界运动会，进行展望，当中包括赛会行政管理、行销宣传等领域，吸引运动相关组织与教育单位的重视。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/82409219.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/82409219.shtml</code></p>
 
 <h3>高级组银牌决赛 南华反胜杰志</h3>
 <p>2009-10年度高级组银牌决赛在香港小西湾球场上演，由南华对杰志，南华在落后两球的情况下，反胜4:2第30度捧走银牌冠军。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/36477179.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/36477179.shtml</code></p>
 
 <h3>2010年世界杯足球赛：斯洛文尼亚一球净胜阿尔及利亚</h3>
 <p>2010年世界杯足球赛C组第二场赛事是阿尔及利亚对斯洛文尼亚，在波罗瓜尼彼得莫卡巴球场上演。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/80471234.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/80471234.shtml</code></p>
 
 <h3>马来西亚公开赛 林丹戴资颖男女单打夺冠</h3>
 <p>然而此番于马来西亚公开赛，林丹从首轮赛事一路战胜世界排名第3的周天成、国家队队友石宇奇，决赛时以9-21先输一局的情况下，再以21-17、21-11两夺两局逆转夺冠，虽然奥运资格争夺尚未开始，亦能为林丹于奥运资格争夺中增添更多信心。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/90376042.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/90376042.shtml</code></p>
 
 <h3>2008年台北国际听障运动邀请赛 台、日、韩 笑傲桌球赛场</h3>
 <p>2008年台北国际听障运动邀请赛，明（10）日将进行足球决赛，而在足球四强确立的同时，地主中华台北队，在桌球赛场上，确实让各国队职员惊奇。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/95099492.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/95099492.shtml</code></p>
 
 <h3>Rajeev Bagga与Natalia Deeva 获选2007世界最佳听障男女运动员</h3>
 <p>为了鼓励全球听障选手的表现，国际听障运动总会日前公布了「世界最佳听障运动员」的评选结果，入围者皆是听障赛会中的个中好手，实力不输给一般运动员，最终，Rajeev Bagga与Natalia Deeva都以最高分当选本年度的世界最佳听障男、女运动员。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/78700986.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/78700986.shtml</code></p>
 
 <h3>2010年世界杯足球赛：荷兰晋身决赛，欧洲球队肯定夺世界杯</h3>
 <p>随所有南美球队无法争标，欧洲球队首次在欧洲以外的地区捧走世界杯。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/52968254.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/52968254.shtml</code></p>
 
 <h3>2010年世界杯足球赛：西班牙历史性首次晋身决赛</h3>
 <p>结果西班牙凭-{zh-hans:普约尔; zh-hant:普约尔; zh-hk:佩奥尔;}-的入球，以1-0取胜，首次晋身决赛。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/44773953.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/44773953.shtml</code></p>
 
 <h3>体委会与捷安特赞助癌友 期许花东自行车之旅筑梦踏实</h3>
 <p>癌友新生命协会的林明发秘书长，在记者会时表示，之前有一位癌症患者，他为了想要试著用自行车完成梦想，就先从士林骑车往淡水，那位人士的目标，激起了癌症患者挑战花东之旅的意志，于是，借由捷安特与行政院体育委员会的支持下，癌友新生命协会也顺利筹划了这项筑梦的活动，希望借由这想挑战，可以激励人群看见生命的希望，特别是癌症患者，或者是找不到目标，而接近绝望的人。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/72321211.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/72321211.shtml</code></p>
 
 <h3>世界听障游泳锦标赛 台北隆重登场</h3>
 <p>2007年世界听障游泳锦标赛，今日于台北市立体育馆举行开幕仪式，并将于12日起，一连五日在国立体育学院游泳池举办正式竞赛。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/90784157.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/90784157.shtml</code></p>
 
 <h3>据报明年东京奥运会将准旅客入境</h3>
 <p>据报导，日本政府将允许大量海外游客进入明年的东京奥运会，并不将接种疫苗作为入境条件。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/59276005.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/59276005.shtml</code></p>
 
 <h3>2007世界听障游泳锦标赛 最终日惊奇落幕 ICSD满意成果</h3>
 <p>2007世界听障游泳锦标赛，今日仅剩下400公尺自由式、100公尺蝶式、200公尺仰式、4x100公尺自由式接力的比赛，虽然五天下来的所有赛程顺利圆满落幕，但在男子400公尺自由式与女子100公尺仰式的决赛中，却发生四天前，决赛时段从未出现的「选手偷跑」现象，有四位选手因此被取消资格。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/25639701.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/25639701.shtml</code></p>
 
 <h3>红鸟资本接手意甲豪门AC米兰</h3>
 <p>6月1日，红鸟资本合作伙伴与埃利奥特英国顾问集团宣布，他们已就红鸟收购新科意甲冠军AC米兰足球俱乐部达成最终协议。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/53509236.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/53509236.shtml</code></p>
 
 <h3>杨瑞承、钟承祐进入富邦悍将</h3>
 <p>中华职棒于14日下午公布，由于乐天桃猿网罗自由球员赖鸿诚，因此富邦悍将要求乐天桃猿补偿内垒手杨瑞承以及转队费234万元。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/95218830.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/95218830.shtml</code></p>
 
 <h3>极品丝绸为方嘉柏及韦达首次取胜香港打吡大赛</h3>
 <p>2010年香港打吡大赛结束，由韦达策骑以及方嘉柏训练的极品丝绸取胜，为骑师及练马师首次胜出是项赛事。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/99884993.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/99884993.shtml</code></p>
 
 <h3>2010年世界杯足球赛：智利把握对手失误以一球取胜</h3>
 <p>2010年世界杯H组赛事是洪都拉斯对智利，在姆博贝拉球场举行。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/91447053.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/91447053.shtml</code></p>
 
 <h3>铃木唯人加盟斯特拉斯堡</h3>
 <p>法甲球队斯特拉斯堡今日（28日）宣布，日本21岁中场铃木唯人以租借的方式加盟球队。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/33808693.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/33808693.shtml</code></p>
 
 <h3>香港南华足球队拜神仪式迎战2008年新球季</h3>
 <p>上季双料冠军香港南华足球队(南华)昨日(28日)举行拜神仪式，同时正式开操，迎战新一季联赛。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/44580506.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/44580506.shtml</code></p>
 
 <h3>2007世界杯棒球赛 四强展现新局面</h3>
 <p>进入八强赛事的2007世界杯棒球赛，因为晋级的强队实力平均，进而展现了不同与预赛的「投手大战」，场场比赛的关键，都出在投手身上。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/13561407.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/13561407.shtml</code></p>
 
 <h3>迪士尼精英赛第三轮赛事成绩</h3>
 <p>64的戴维斯．拉夫三世(Davis Love III)和66的斯科特．斯特灵(Scott Sterling)，以总成绩199，排名并列第三。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/83067648.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/83067648.shtml</code></p>
 
 <h3>2010年世界杯足球赛：洛宾打正选为荷兰取得胜利</h3>
 <p>2010年世界杯足球赛十六强赛事E组首名荷兰对F组次名斯洛伐克，在德班德班球场举行。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/41648410.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/41648410.shtml</code></p>
 
 <h3>罗纳尔迪尼奥正考虑加盟英超或意甲</h3>
 <p>巴塞罗拿足球会的巴西中场-{zh-hans:罗纳尔迪尼奥; zh-hant:罗纳尔迪尼奥; zh-hk:朗拿甸奴;}-来季有意转战英超或意甲，日内将作出决定。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/41645905.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/41645905.shtml</code></p>
 
 <h3>美国网球公开赛：德尔波特罗首夺大满贯</h3>
 <p>2009年美国网球公开赛男单决赛结果。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/48706585.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/48706585.shtml</code></p>
 
 <h3>世界反运动禁药机构 调查中俄两国游泳队禁药问题</h3>
 <p>世界反运动禁药机构决定对中国游泳队及俄罗斯游泳队怀疑服用禁药的事宜展开调查。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/76949782.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/76949782.shtml</code></p>
 
 <h3>奥委会不满中国把奥运政治化</h3>
 <p>他说，中国的立场是坚决反对把奥运政治化。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/49698111.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/49698111.shtml</code></p>
 
 <h3>高尔夫强鹿精英赛第二轮赛事成绩</h3>
 <p>强鹿精英赛(John Deere Classic)第二轮赛事里，美国球手威尔．麦肯兹(Will MacKenzie)，以负7杆64杆，总成绩负13杆，排名第一。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/28643008.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/28643008.shtml</code></p>
 
 <h3>高尔夫加拿大公开赛第二轮赛事成绩</h3>
 <p>加拿大公开赛第二轮赛事中，切兹．里维(Chez Reavie)打出64杆，以总成绩负13杆的129，5杆领先其他对手，排名第一。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/83530220.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/83530220.shtml</code></p>
 
 <h3>台北101国际登高赛 号召运动界菁英 三战台湾之最</h3>
 <p>台北101国际登高赛，今（2007）年进入第三届，这项总奖金高达新台币101万元的比赛，将在11月25日正式开战，地主台北101、主办的台北市政府，除了邀请丰田汽车台湾总代理和泰汽车，冠名赞助本比赛，并且与共同合办的台北听奥筹委会合作，将绝大多数的报名所得，捐给筹委会，作为「2009年夏季听障奥运会」的推广基金。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/28783045.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/28783045.shtml</code></p>
 
 <h3>亚洲足协杯四强第二回合 科威特竞技作客击败南华晋身决赛</h3>
 <p>2009年亚洲足协杯四强第二回合在2009年10月21日举行，其中南华足球队在香港大球场主场迎战科威特竞技，最后科威特竞技以1-0击败南华，两回合计以3-1胜出赛事，率先晋身决赛。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/64831190.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/64831190.shtml</code></p>
 
 <h3>中国奥运金牌得主服禁药处罚上诉被驳回</h3>
 <p>国际体育仲裁庭（CAS）宣布驳回两名中国女子举重运动员就服用禁药处罚的上诉，维持取消其北京奥运会金牌的处罚。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/88745181.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/88745181.shtml</code></p>
 
 <h3>高尔夫强鹿精英赛第三轮赛事成绩</h3>
 <p>强鹿精英赛(John Deere Classic)第三轮赛事中，67杆的肯尼．佩里(Kenny Perry)、67杆的艾荣．阿克斯利(Eric Axley)、66杆的布拉德．阿达莫尼斯(Brad Adamonis)，以负15杆的总成绩排名幷列第一。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/33079831.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/33079831.shtml</code></p>
 
 <h3>2007台北国道马拉松 传出选手死亡意外</h3>
 <p>就在全程与半程马拉松比赛于早上6时准时鸣枪起跑后约半个小时，传出有半程马拉松组选手在比赛标志15.4公里处发生休克意外，医护人员通报后，紧急将患者送往台北马偕医院抢救，但仍然因为休克的关系，在到医院前就已经抢救无效，而宣告死亡，经查证，死者为32岁的电脑工程师黄金明，也因为这个事故的突然发生，警方也正在调查相关人员是否有疏失。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/96386910.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/96386910.shtml</code></p>
 
 <h3>高尔夫奔驰锦标赛第四轮赛事成绩</h3>
 <p>哥伦比亚球手卡米洛．维勒加斯(Camilo Villegas)，于奔驰锦标赛第四轮赛事中，以负2的68，总成绩负15的265，赢得奔驰锦标赛(BMW Championship)的冠军。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/94873495.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/94873495.shtml</code></p>
 
 <h3>第九届运动精英奖 入围者接受表扬</h3>
 <p>由中华民国行政院体育委员会主办的「运动精英奖」，今年进入第九届，本次共有110组个人与团体单位进行参选，在上周公布八项共30组的入围名单后，于今日（9月3日）在台北市举行入围者表扬仪式，除了表扬基层体育奉献、全民运动推展、最佳运动团队、最佳教练、最佳男运动员、最佳女运动员、最佳运动精神等七项奖项的入围者，同时也邀请台北体院舞蹈系与台艺大的室内乐团进行表演，此外，体委会也宣布，所有的奖项将在9月9日体育节当天，于高雄市立社会教育馆揭晓。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/91411582.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/91411582.shtml</code></p>
 
 <h3>2008年香港贺岁烟花汇演 京奥高清成主打</h3>
 <p>为迎接农历新年及北京奥运的来临，本年度的香港贺岁烟花汇演将再创新猷，市民将可以首次看到「北京」及「2008」字样的烟花，并配合奥运主题曲作背景音乐衬托，预祝北京奥运顺利举行。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/27931551.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/27931551.shtml</code></p>
 
 <h3>美国游泳协会宣布处理菲尔普斯</h3>
 <p>根据美国游泳协会网站，他们在5日已经根据协会行为守则谴责了迈克尔·菲尔普斯，并撤消了对他的资金赞助，同时对他禁赛3个月。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/28587633.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/28587633.shtml</code></p>
 
 <h3>高尔夫温丹锦标赛第一轮赛事成绩</h3>
 <p>温丹锦标赛(Wyndham Championship)第一轮赛事中，英国球手马丁．莱尔德(Martin Laird)和鲍勃．亨兹(Bob Heintz)，以负7的63，排名并列第一。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/59163119.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/59163119.shtml</code></p>
 
 <h3>马来西亚2名羽球选手涉嫌打假球</h3>
 <p>马来西亚羽球协会证实日前马来西亚羽球选手涉嫌打假球的消息，并且说明有两名球员正在接受世界羽球联合会（BWF）的调查。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/71096494.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/71096494.shtml</code></p>
 
 <h3>法国总统下周决定是否出席奥运开幕</h3>
 <p>法国总统萨尔科齐于星期一（6月30日）表示，将就中国官员与达赖喇嘛代表的会晤是否能取得实质进展，而决定是否出席奥运开幕。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/83149472.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/83149472.shtml</code></p>
 
 <h3>高尔夫吉恩精英赛第一轮赛事成绩</h3>
 <p>吉恩精英赛(Ginn sur Mer Classic)第一轮赛事中，65的迈克尔．勒茨格(Michael Letzig)和肯特．琼斯(Kent Jones)，排名并列第一。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/61457155.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/61457155.shtml</code></p>
 
 <h3>美国选手打破维持28年的女子百米跨栏纪录</h3>
 <p>先前的女子百米跨栏世界纪录是保加利亚籍选手Yordanka Donkova在1988年汉城奥运会创下的。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/94598844.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/94598844.shtml</code></p>
 
 <h3>以和赛为耻 张琳芃曾拟退中国国足</h3>
 <p>中国在世界杯外围赛被新加坡逼和，队长张琳芃感到「耻辱」，决定退出国足。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/73225400.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/73225400.shtml</code></p>
 
 <h3>中国香港毅力十二爱心跑复办 顺利迎接2010年</h3>
 <p>超过二千名来自运动员、纪律部队和各位不同界别的市民，在中国香港沙田参与由香港精英运动员协会主办的「毅力十二爱心跑」，以接力跑方式在沙田运动场连续八个小时，由下午四时至凌晨零时，为多个组织包括精英运动员慈善基金、再生会及香港哮喘会筹款，并在沙田运动场迎接2010年。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/82381018.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/82381018.shtml</code></p>
 
 <h3>AT&amp;T全国锦标赛第三轮赛事成绩</h3>
 <p>汤姆．佩尼斯(Tom Pernice)于AT&amp;T全国锦标赛第三轮赛事中，继第二轮赛事的领先后，继续排名第一，本轮的成绩为负1杆69杆，总成绩为负10杆。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/61458953.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/61458953.shtml</code></p>
 
 <h3>北京半马专题：「黑人配速员」保送何杰？</h3>
 <p>北京半程马拉松赛事闹「黑人配速员」丑闻，一众非洲选手疑「放水保送」中国代表何杰夺冠，引广泛质疑。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/61157175.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/61157175.shtml</code></p>
 
 <h3>WTA巡回赛决赛 轩宁夺冠</h3>
 <p>WTA巡回赛决赛的总决赛在2007年11月11日在西班牙马德里举行。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/91163542.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/91163542.shtml</code></p>
 
 <h3>高尔夫新加坡公开赛第二轮赛事成绩</h3>
 <p>新加坡公开赛第二轮赛事中，厄尼．埃尔斯(Ernie Els)和西门．戴森(Simon Dyson)，以总成绩为低于标准杆6杆的排名并列第一。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/73586748.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/73586748.shtml</code></p>
 
 <h3>高尔夫巴克莱精英赛第二轮赛事成绩</h3>
 <p>巴克莱精英赛第二轮赛事中，史提夫．史翠克(Steve Stricker)打出负7的64，以总成绩负10的132，排名第一。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/91338141.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/91338141.shtml</code></p>
 
 <h3>欧洲足协杯 八强球队产生</h3>
 <p>经过前日及昨天进行的欧洲足协杯十六强次回合后，产生全部八支出线队伍，当中罗马尼亚两支球队布加勒斯特迅速及布加勒斯特星队先后击败德国的汉堡及西班牙皇家贝迪斯晋身八强。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/92945727.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/92945727.shtml</code></p>
 
 <h2>三、体育赛事新闻精选</h2>
 <h3>欧洲联赛冠军杯八强 首回合比数产生</h3>
 <p>欧洲联赛冠军杯在前两日已进行了八强的首回合比赛，分别是阿仙奴对祖云达斯、宾菲加对巴塞隆拿足球会、国际米兰对维拉利尔以及里昂足球会对AC米兰。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/73344741.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/73344741.shtml</code></p>
 
 <h3>自行车环台赛进军八卦山 捷安特出奇制胜成最大赢家</h3>
 <p>这项分站比赛在21日上午，由彰化县长卓伯源从八卦山的起点领骑，开赛后，玛吉斯车队展开卡位战，并且与捷安特车队的葛尔德、柯杰、何欣（Hossein Askari）形成首要的领先集团；到了最后的倒数22公里，澳洲保时捷车队的戴伦（Darren Lapthorne）首先冲出重围，接著，葛尔德、柯杰、何欣再次展开攻击，引出第二领先团，并且在最后的三公里将戴伦超越，最终，世界爬坡纪录保持人葛尔德在最后500公尺的陡坡杀出血路，首先压阵，并获得单站冠军，队友柯杰仅以5秒之差获得亚军，而卢森堡迪佛丹治队柯摩顿（Morten Knudsen）则以7秒之差拿下季军。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/82050625.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/82050625.shtml</code></p>
 
 <h3>中华台北变中国台北引发争议</h3>
 <p>北京奥运国际新闻中心日前正式启动，但中心内将「中华台北」的标志，标示为「中国台北」，结果引起争议。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/83867654.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/83867654.shtml</code></p>
 
 <h3>2008年欧洲国家杯：俄罗斯3-1击败荷兰</h3>
 <p>2008年-{zh-hant:欧洲国家杯;zh-hans:欧洲足球锦标赛}-在6月21日于巴素尔圣雅各公园球场举行八强第三场赛事，由荷兰迎战俄罗斯。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/71637540.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/71637540.shtml</code></p>
 
 <h3>亚洲篮球电玩市场 NBA系列游戏仍有伸展空间</h3>
 <p>运动竞技类电玩，因为是运动与娱乐的结合，进而成为基层（运动）消费者的讨论话题，也带动了运动竞技类电玩的买气，虽然NBA系列的电玩，并非世界电玩大赛的指定项目，但因为全球的「NBA热」，加上PC Game族群有一定规模，进而带动篮球迷对于同类电玩的高度关注，相关的市场也渐渐被拓展，有鉴于此，维基新闻的记者Rico Shen做了一个简短且重点式的访问，希望借由亚洲NBA项目总监黎田的一些资讯，探究NBA亚洲地区的电玩市场。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/96640215.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/96640215.shtml</code></p>
 
 <h3>奥运圣火抵欧 英法发生抗议活动</h3>
 <p>虽然2008年奥运圣火传递正持续地进行，但圣火在欧洲地区传递时，因为部分人士对于中国的人权状况表示质疑，进而发生多起出面抵制的冲突，甚至当圣火传到法国境内时，法国当地的警方为了避免暴动，在不影响火种为前提下，一度将圣火熄灭，但仍有近30位人士在法国的抗议示威中被捕，当中包含巴黎市议会副议长费里。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/21861408.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/21861408.shtml</code></p>
 
 <h3>2007-08年度香港足总杯：公民力压和富大埔首夺冠军</h3>
 <p>2007-08年度香港足总杯决赛在5月18日于香港大球场举行，总共吸引了接近6千名观众购票进场。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/75165914.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/75165914.shtml</code></p>
 
 <h3>里约残疾人奥运会禁止俄罗斯队参赛</h3>
 <p>将在9月举行的里约残疾人奥运会禁止整个俄罗斯代表队参赛，这种严厉惩罚是针对俄罗斯选手系统性地使用禁药，这比目前在里约热内卢举办的夏季奥运会禁止俄罗斯部分运动员参赛又进了一步。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/66608470.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/66608470.shtml</code></p>
 
 <h3>美国职业摔跤手乔恩·胡伯去世 享年41岁</h3>
 <p>美国职业摔角手乔恩·休伯（Jon Huber）曾以卢克·哈珀（Luke Harper）为世界摔角娱乐（WWE）效力，以布罗迪·李（Brodie Lee）为精英摔跤（AEW）效力，上周六去世，享年41岁。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/78357524.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/78357524.shtml</code></p>
 
 <h3>国际象棋世界冠军统一赛 卡姆力克取第一回合</h3>
 <p>刚结束的第一回合中,专业象棋协会(PCA)世界冠军 卡姆力克 (Владимир Крамник)执白以车马三兵 对车马一兵及盘面位置优势使国际象棋联会(FIDE)世界冠军 托帕洛夫(Веселин Топалов)认输. 卡姆力克取得第一回合的一分.。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/94301195.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/94301195.shtml</code></p>
 
 <h3>高尔夫欧洲大师赛第四轮赛事成绩</h3>
 <p>法国球手卢克奎恩(Jean-Francois Lucquin)，赢得欧洲大师赛(European Masters)的冠军。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/78201797.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/78201797.shtml</code></p>
 
 <h3>横滨世乒赛落幕 中国队包揽金牌</h3>
 <p>至此，本届世乒赛全部5个项目的金牌和银牌全部落入中国队囊中，而最终获得铜牌的非中国队选手，也仅有一对来自日本的男双组合以及两对分别来自中国香港和韩国的女双组合。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/15204329.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/15204329.shtml</code></p>
 
 <h3>羽球国手逆转胜夺冠 周天成：耶稣是我教练！</h3>
 <p>台湾羽球国手「小天」周天成，今年10月在法国羽球公开赛以10：21、25：23、21：19，奇迹似逆转胜夺下冠军，成为台湾第一位在超级羽球系列赛中，男子单打摘冠的选手，后续在各项赛事也屡创佳绩，比赛过程中不时让球评惊叹「Unbelievable！」<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/40522541.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/40522541.shtml</code></p>
 
 <h3>山西运动会奏中华民国国旗歌</h3>
 <p>然而，细心网民发现，这非晋中市首次在运动会奏中华民国国歌。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/10107648.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/10107648.shtml</code></p>
 
 <h3>高尔夫俄罗斯公开赛第四轮赛事成绩</h3>
 <p>俄罗斯公开赛第四轮赛事中，68的瑞典球手迈克尔．卢德伯格(Mikael Lundberg) 以负21的267，赢得冠军。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/69628555.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/69628555.shtml</code></p>
 
 <h3>球迷嘘国歌 港足陷中港融合困局</h3>
 <p>香港足总前行政总裁Mark Sutcliffe担忧港足在中港融合下的独立地位不保。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/70496463.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/70496463.shtml</code></p>
 
 <h3>网球大师杯 费达拿5年内4夺冠军</h3>
 <p>2007年网球大师杯赛决赛在11月18日在中国上海举行，决赛的球手是现今世界排名第一瑞士球手-{zh-hans:费德勒;zh-hk:费达拿;zh-hant:费德勒}-面对西班牙球手-{zh-hans:费雷尔;zh-hant:费雷尔;zh-hk:费拿}-，最后-{zh-hans:费德勒;zh-hk:费达拿;zh-hant:费德勒}-以3-0击败对手，三盘局数胜6-2、6-3及6-2。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/50871714.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/50871714.shtml</code></p>
 
 <h3>高尔夫职业锦标赛第四轮赛事成绩</h3>
 <p>同时，哈灵顿也是继1924年华他．哈根(Walter Hagen)、1994年尼克．派斯(Nick Price)和2000年及2006年的泰格．伍兹(Tiger Woods)以后，第四位一连赢下英国公开赛和职业锦标赛的球手。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/47839164.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/47839164.shtml</code></p>
 
 <h3>香港足总放弃使用香雪主场</h3>
 <p>香港足球总会昨晨派人到深圳宝安区沙井镇，视察内地的甲组新军香雪上清饮的主场及设施，副总干事兼竞赛总监林诚驹认为，香雪于深圳主场的设施及草地质素欠佳，足总在研究过后，决定取消今季于香雪主场的所有赛事申请，而原本已安排好的赛事，则全部改于香港的球场进行。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/97974533.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/97974533.shtml</code></p>
 
 <h3>河南郑州：10万大学生夜骑开封</h3>
 <p>近日，“郑州大学生夜骑单车到开封”一事引发热议。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/44070219.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/44070219.shtml</code></p>
 
 <h3>詹姆斯携手科比获上周东西部最佳球员</h3>
 <p>美国纽约时间12月29日消息，NBA官方网站公布上周东西部最佳球员，克利夫兰骑士队的勒布朗·詹姆斯和洛杉矶湖人队的科比·布莱恩特分别当选东西部最佳。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/33148728.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/33148728.shtml</code></p>
 
 <h3>高尔夫尊尼获加精英赛第二轮赛事成绩</h3>
 <p>70的罗伯特．洛克(Robert Rock)，以总成绩140，排名第二。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/72357434.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/72357434.shtml</code></p>
 
 <h3>高尔夫吉恩精英赛第二轮赛事成绩</h3>
 <p>71的莱恩．帕尔默(Ryan Palmer)打出71杆后，于吉恩精英赛(Ginn sur Mer Classic)第二轮赛事中，以总成绩138，1杆领先其他对手。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/41701101.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/41701101.shtml</code></p>
 
 <h3>中国篮球明星易建联年龄被疑造假</h3>
 <p>媒体刊载带有学校照片和一张学生登记卡的报道引发了人们对NBA中国球员易建联年龄真实性的怀疑。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/36901969.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/36901969.shtml</code></p>
 
 <h3>高尔夫欧洲公开赛第二轮赛事成绩</h3>
 <p>罗斯．菲舍尔(Ross Fisher)本轮的成绩为68杆，总成绩为负13杆的131杆，仍然排名第一。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/88701951.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/88701951.shtml</code></p>
 
 <h3>2007年ING台北国际马拉松开跑在即 菁英好手为纪录而战 企业为健康力拼公益</h3>
 <p>随著开跑时间的逼近，2007年ING台北国际马拉松，除了将缔造新的参赛规模，甚至在本次比赛中，也将有可能会出现新的纪录，因为，企业不但力挺公益事业，国际级菁英好手也将为纪录而战。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/28064670.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/28064670.shtml</code></p>
 
 <h3>欧洲联赛冠军杯 不莱悔主场3-2击败皇马</h3>
 <p>-{zh-hk:2007-08年欧洲联赛冠军杯;zh-hant:2007-08年欧洲冠军联赛;zh-hans:2007-08年欧洲冠军联赛}-在欧洲时间星期三晚上进行了八场第五轮A-D组的比赛。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/20231890.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/20231890.shtml</code></p>
 
 <h3>江苏足球俱乐部宣布停止运营</h3>
 <p>去年11月12日，江苏足球俱乐部夺得2020赛季中超联赛冠军，而这距离俱乐部宣布停止运营仅仅过去了108天。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/62701486.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/62701486.shtml</code></p>
 
 <h3>博尔特破200米纪录再创历史</h3>
 <p>他将会于星期六(8月23日)于4X100接力再度上阵，该项目纪录于1992年的巴塞罗那奥运会上，由美国队所创的37秒40，该项目一直以美国为一哥，牙买加能否靠新飞人-{zh-cn:博尔特;zh-hk:保特;zh-tw:博尔特}-再次创造历史，仍是众人焦点。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/99593912.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/99593912.shtml</code></p>
 
 <h3>英国女子公开赛第四轮赛事成绩</h3>
 <p>66的申智爱(Shin Ji-yai)于英国女子公开赛第四轮赛事中，以负18的270杆，赢得冠军，成为第三位赢得女巡大赛的南韩球手。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/94117409.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/94117409.shtml</code></p>
 
 <h3>2007东吴国际超级马拉松 不只亚洲纪录的创新 也看见台湾体育行政的进步</h3>
 <p>2007年东吴国际超级马拉松，在历经24、25日的决战后，24小时赛的冠军终于出炉，刚入选赛会名人堂的关家良一，不但成功卫冕这项比赛的冠军，他的队友稻垣寿美惠，包下了女子组的冠军，两人都刷新了24小时赛的亚洲纪录，日本队这次可以算是这项赛会的大赢家。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/90880064.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/90880064.shtml</code></p>
 
 <h3>欧洲超级联赛宣告成立 引发风波</h3>
 <p>当地时间4月18日，由12家欧洲足球俱乐部共同发起的“欧洲超级联赛”（The Super League）正式宣告成立，西班牙皇家马德里足球俱乐部主席弗洛伦蒂诺·佩雷斯担任这一赛事的首任主席。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/93349323.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/93349323.shtml</code></p>
 
 <h3>企业与慈善团体 力挺ING台北马拉松 为形象加分</h3>
 <p>今年的ING台北国际马拉松比赛，不但在规模上大幅创新，甚至，也吸引更多企业团体的注意，加上主力的赞助商ING安泰人寿大打公益牌，因此，包含2009听障奥运筹委会、罕见疾病基金会、中华视障路跑运动协会等团体，也持续响应这项重要的盛会。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/22824115.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/22824115.shtml</code></p>
 
 <h3>2008年NBA总决赛 波士顿重夺22年来首个总冠军</h3>
 <p>2008年NBA总决赛终在6月17日分出总冠军谁属，波士顿-{zh-hant:塞尔蒂克;zh-hans:塞尔提克;zh-hk:塞尔特人}-以131-92大比分击败洛杉矶湖人，总场数以4-2击败对手，这是-{zh-hant:塞尔蒂克;zh-hans:塞尔提克;zh-hk:塞尔特人}-自1986年以来首个NBA总冠军。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/82684676.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/82684676.shtml</code></p>
 
 <h3>国际象棋世界冠军统一赛 卡姆力克取第十局</h3>
 <p>正在卡尔梅克共和国首都埃利斯塔举行的国际象棋世界冠军统一决斗, 第八局中 专业象棋协会(PCA)世界冠军卡姆力克执白 与国际象棋联会(FIDE)世界冠军托帕洛夫再次弈出加泰兰开局(E08). 白第十二著为新著.。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/87256474.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/87256474.shtml</code></p>
 
 <h3>三星活力路跑 公益结合科技 台北欢庆三周岁</h3>
 <p>自2005年起引进台湾的「三星活力路跑」，今（14）日欢庆三周岁，在台北市政府广场正式开跑，延续往年来的优质公益形象，今年三星电子特别捐赠100支Samsung Anycall i718的PDA手机，给中华民国听障人协会，并邀请台湾十大杰出听障就业楷模，进行代表性的受赠，听障人协会理事长杨炯煌表示，三星之前也赞助了台北的2009听障奥运，对于听障朋友的关怀不遗余力，希望三星能够持续优良的品牌形象，积极投入公益事业。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/39213585.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/39213585.shtml</code></p>
 
 <h3>吴伯雄不满中国台北称号或不出席奥运</h3>
 <p>早前，国民党主席吴伯雄5月下旬时，受中共总书记胡锦涛邀请，将以贵宾身份于8月初到北京参加奥运开幕式，但近日发生「中华台北」被改成「中国台北」一事，国民党秘书长吴敦义表示，吴伯雄可能不出席奥运。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/91301019.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/91301019.shtml</code></p>
 
 <h3>2008金石国际马拉松 比利时选手缔新猷</h3>
 <p>最终，这项比赛的纪录保持人，也是比利时的田径选手瑞克‧修勒曼斯（Rik Ceulemans）以2小时18分13秒的成绩，再度把自己在三年前留下的纪录往前推进，成为男子马拉松的总冠军；女子马拉松部分，则是由2007年台北国际马拉松的冠军许玉芳，以2小时53分39秒的成绩，顺利封后；巧合的是，去年这项比赛的男女总冠军─吴文骞与吴婉菱，在今年各以第二名的成绩作收。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/11606314.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/11606314.shtml</code></p>
 
 <h3>国际奥委会解除禁令伊拉克重获北京奥运会资格</h3>
 <p>早前因被指政治干预体育而被国际奥委会取消参加北京奥运会资格的伊拉克，今日和国际奥委会达成协议，重获北京奥运会参赛资格。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/24017596.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/24017596.shtml</code></p>
 
 <h3>国际象棋世界冠军决斗 第十一局弈和</h3>
 <p>正在卡尔梅克共和国首都埃利斯塔举行的国际象棋世界冠军统一决斗, 第十一局中。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/70560834.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/70560834.shtml</code></p>
 
 <h3>暴龙球员无法支薪 旅外球员动向受关注</h3>
 <p>由于米迪亚暴龙队已遭中华职棒联盟除名，进而爆出多数球员的薪资危机，而王传家等20人的自救会，今（10）日前往台北市劳工局请求协助，但由于劳工局以「职棒不属于劳基法保障范围」为由，建议自救会采取法律行动，让自救会的球员失望而归。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/59141413.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/59141413.shtml</code></p>
 
 <h3>中国赛事举办方阻挠乌克兰运动员展示海报</h3>
 <p>3月26日，在中国宁波举办的击剑世界杯上，一个乌克兰击剑运动员试图展示一张海报，但被赛事举办方阻止。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/52800184.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/52800184.shtml</code></p>
 
 <h3>高尔夫尊尼获加精英赛第三轮赛事成绩</h3>
 <p>尊尼获加精英赛第三轮赛事后，格雷利．哈雷特(Gregory Havret)打出负4的69，以总成绩负11的208，排名第一。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/93847730.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/93847730.shtml</code></p>
 
 <h3>高尔夫加拿大公开赛第一轮赛事成绩</h3>
 <p>加拿大公开赛第一轮赛事中，迈克．维尔(Mike Weir)、金河珍(Anthony Kim)和艾里克．阿克斯利(Eric Axley)均打出负6杆65杆，排名并列第一。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/10027115.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/10027115.shtml</code></p>
 
 <h3>2007世界杯棒球赛 中华队在争议中险胜义大利</h3>
 <p>今（12）日的世界杯棒球赛仅有一场比赛，是在天母棒球场，也是原订应该在开幕（6）日进行的「义大利vs中华台北」。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/61721961.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/61721961.shtml</code></p>
 
 <h3>世界高尔夫锦标赛——普利司通邀请赛第一轮赛事成绩</h3>
 <p>南非球手李铁．古森(Retief Goosen)以负4的66杆，于世界高尔夫锦标赛——普利司通邀请赛(WGC-Bridgestone Invitational)第一轮赛事中，排名第一。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/55430951.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/55430951.shtml</code></p>
 
 <h3>高尔夫常青组英国公开赛第三轮赛事成绩</h3>
 <p>常青组英国公开赛第三轮赛事中，67杆的约翰．高谷(John Cook)，以总成绩负6杆的207，排名第一。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/99386019.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/99386019.shtml</code></p>
 
 <h3>2008国际自由车环台赛 美国车手荣耀台北县站</h3>
 <p>进入比赛中后期的「2008年国际自由车环台赛」，今日在台北县展开第六站的竞逐，虽然这项127公里的长距离公路赛，是整个系列中第二长的赛段，但行经板桥、新庄、五股、八里、淡水、金山、三芝、石门、万里等九乡镇市，却是行经最多乡镇市的一站。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/16286472.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/16286472.shtml</code></p>
 
 <h3>日韩多古晋级棒球经典赛四强 美国遭淘汰</h3>
 <p>世界棒球经典赛复赛结果出炉，韩国、日本、多明尼加、古巴晋级四强，棒球发源地及此次赛事主办国美国则遭到淘汰。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/67974118.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/67974118.shtml</code></p>
 
 <h3>2007台北101国际登高赛 欧洲选手包双冠 北市消防局夺下团体冠军</h3>
 <p>赛前最被看好的台北市消防局，在局长熊光华的督军下，将实力完全展现，虽然他们在去年，将冠军礼让给去年的冠名赞助商，也是同时拿下团体前三名的彰化银行，但这回在部分大专院校的挑战下，台北市消防局最终夺回了这届的团体冠军，而中央大学派出的两个队伍，也在李罗权校长的率领下，拿下了二、三名的成绩。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/27867939.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/27867939.shtml</code></p>
 
 <h3>重庆两江竞技足球俱乐部宣布解散</h3>
 <p>今天上午，重庆两江竞技足球俱乐部发布公告，宣布退出中国职业足球联赛并解散球队。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/93312045.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/93312045.shtml</code></p>
 
 <h3>2010年世界杯足球赛：葡萄牙回勇七球大胜北韩</h3>
 <p>2010年世界杯足球赛G组第二场赛事是葡萄牙对北韩，在开普敦绿点球场举行，结果葡萄牙由6名球员包办七个入球，以7-0大胜对手。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/90071616.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/90071616.shtml</code></p>
 
 <h3>罗比尼奥以天价转投曼城</h3>
 <p>西甲足球会皇家马德里今日(9月2日)于官方网页宣布，与英超球会曼城达成协议，巴西前锋足球员-{zh-hans:罗比尼奥; zh-hant:罗比尼奥; zh-hk:罗宾奴;}-将效力曼城。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/56488040.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/56488040.shtml</code></p>
 
 <h3>高尔夫尊尼获加精英赛第一轮赛事成绩</h3>
 <p>格雷利．哈雷特(Gregory Havret)在尊尼获加精英赛第一轮赛事里，以负5的68，排名第一。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/30770520.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/30770520.shtml</code></p>
 
 <h3>世界棒球经典赛 南韩队全胜晋级四强</h3>
 <p>美国时间3月15日晚间七点，南韩和日本在安那罕天使球场进行世界棒球经典赛八强复赛，终场南韩队以2比1的比数获得胜利，晋级世界棒球经典赛四强赛。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/27936769.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/27936769.shtml</code></p>
 
 <h3>国际奥委会要求调查中国女体操运队员年龄</h3>
 <p>针对部分中国女子体操选手年龄被质疑，国际奥委会已要求国际体操联会，调查中国女体操队部份选手年龄。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/35912199.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/35912199.shtml</code></p>
 
 <h3>2008-09欧洲冠军杯 32强淘汰赛抽签结果出炉</h3>
 <p>瑞士时间昨（19）日12时，2008-09赛季欧洲冠军联赛淘汰赛抽签仪式在瑞士尼翁的欧足联总部举行，16强的对战组合已经全部出列，当中居然出现三组英超对上义甲的戏码，创下欧冠联赛53年以来，第一次出现英超、义甲两联赛六强直接对上的纪录，上回两联赛直接对上是出现在04─05赛季，当时是英超的切尔西与阿森纳兵工厂，分别对上巴塞隆纳与皇家马德里。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/22727258.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/22727258.shtml</code></p>
 
 <h3>旅行者哈特福特锦标赛第三轮赛事成绩</h3>
 <p>美国球手斯图尔特．辛克(Stewart Cink)于旅行者哈特福特锦标赛(Travelers Championship)第三轮赛事中，打出低于标准杆5杆的65杆的成绩后，以总成绩低于标准杆15继续领先。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/14929994.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/14929994.shtml</code></p>
 
 <h3>巴黎残奥开幕</h3>
 <p>继巴黎奥运在塞纳河上举行开幕礼后，残奥开幕礼本届首次走出体育馆，在室外的协和广场举行。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/22651911.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/22651911.shtml</code></p>
 
 <h3>两岸政治立场不同 2008北京奥运圣火确定不到台湾</h3>
 <p>一波三折的2008北京奥运圣火路线，在台湾与中国的政治立场仍旧坚持己见的情况下，国际奥会在今天上午宣布，奥运圣火确定不经过台湾。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/53577506.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/53577506.shtml</code></p>
 
 <h2>四、体育赛事新闻精选</h2>
 <h3>科比·布莱恩亚洲之旅 二度访台掀旋风</h3>
 <p>-{zh-hk:高比; zh-hant:科比; zh-hans:科比;}-·-{zh-hk:拜仁; zh-hant:布莱恩; zh-hans:布莱恩特;}-的亚洲之旅，本次来到第二站─台北，这是继去年之后的第二次参访，在9月6日当天，除了参加NIKE台北旗舰店开幕典礼，另外在与球迷互动的「超能类」晚会中，将气氛飙到最高点。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/97030491.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/97030491.shtml</code></p>
 
 <h3>香港跑手苏桦伟于残疾奥运会夺金</h3>
 <p>有「神奇小子」之称的香港残疾运动员苏桦伟于北京残疾奥运会200米田径，以破由他所保持的世界纪录成绩24秒6，力压乌克兰选手帕夫里克和中国的东冕蝉联金牌。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/44129263.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/44129263.shtml</code></p>
 
 <h3>美国食热狗大赛难分难解斗至附加赛分胜负</h3>
 <p>契斯勒和小林尊斗得难分难解，最后两人于十分钟内各吃下59个热狗，要再进行附加赛决定胜负，附加赛两人斗快吃下五个热狗，最后由美国选手契斯勒卫冕冠军。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/44832603.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/44832603.shtml</code></p>
 
 <h3>香港甲足旺角场公民对淦源创入场人数新低</h3>
 <p>快意空调甲组足球联赛昨日(10月21日)于旺角场举行公民对淦源，入场人数152人。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/94935831.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/94935831.shtml</code></p>
 
 <h3>台湾运动暨休闲产业展 台北世贸吹起运动风潮</h3>
 <p>台湾运动暨休闲产业展览会，今日（7月19日）在台北世贸中心亮相，这项展览是中华民国对外贸易发展协会首度举办的内销体育运动产业展，并且规划八大主题馆、三大展售区，以及安排各类研讨会与活动，让参观者可以一次获得各家厂商与相关公协会的重要资讯。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/39865891.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/39865891.shtml</code></p>
 
 <h3>阿根廷取得2022年卡塔尔世界杯冠军</h3>
 <p>在2022年国际足联卡塔尔世界杯决赛中，阿根廷队与法国队进行了一场扣人心弦的鏖战，最终阿根廷队击败了法国队，队史第三次获得世界杯冠军，距离他们的第二个冠军已有三十六年之久。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/67361851.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/67361851.shtml</code></p>
 
 <h3>登喜路高球锦标赛第四轮赛事成绩</h3>
 <p>罗伯特．卡尔森(Robert Karlsson)赢得登喜路高球锦标赛的冠军。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/66904036.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/66904036.shtml</code></p>
 
 <h3>Fox体育台最后转播棒球，许多球迷不舍</h3>
 <p>而11月15日的日本职棒太平洋联盟季后赛最后战为FOX体育台最后一场棒球转播，由黄忠义担任球评。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/97964719.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/97964719.shtml</code></p>
 
 <h3>C朗拿度确诊新冠肺炎</h3>
 <p>在C朗拿度被确诊为新冠肺炎后，他起初留在葡萄牙国家队训练基地进行自我隔离，但在比赛结束后，他就离开了葡萄牙，飞回意大利家中进行隔离。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/24217486.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/24217486.shtml</code></p>
 
 <h3>2007世界杯棒球赛 义、台、日、加大开杀戒</h3>
 <p>这不是指冲突，而是指世界杯棒球赛中的赛况，包括义大利、中华台北（台湾）、日本、加拿大，今日因为对手实力较弱，纷纷大开杀戒，领先对手达到十分以上，在加上明日中日对决的戏码，门票已经销售一空，可以想像，这四支队伍等于是为明日的比赛而准备。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/49102779.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/49102779.shtml</code></p>
 
 <h3>香港甲足南华四海火药味浓共发1红14黄</h3>
 <p>南华对四海整场球赛充满火药味，球证全场派出1红14黄，而半场回更衣室时更发生推撞，需要警方介入平息。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/59282486.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/59282486.shtml</code></p>
 
 <h3>Wii台湾版机种7月中问世 相关话题将燃战火</h3>
 <p>自从Wii在去年引发轩然大波，甚至引起台湾地区的部分大型机台业者，独自引进该主机，进行大型机台的研发，并在台湾运动暨休闲产业展中首度亮相后，专为台湾地区量身打造的Wii台湾版，也确定将在7月12日正式在台湾亮相。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/27761762.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/27761762.shtml</code></p>
 
 <h3>北京消极参与台北世大运 选手称在乎金牌</h3>
 <p>这些行动被广泛认为是北京刻意冷落台北组办本届世大运，在形式上不完全抵制的方式实质上抵制或消极参与本届赛事。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/52664336.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/52664336.shtml</code></p>
 
 <h3>东京奥运会开幕式收视率创新低</h3>
 <p>2020年东京奥运会开幕式收视率创新低。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/94799137.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/94799137.shtml</code></p>
 
 <h3>足球史册的传奇：球王贝利逝世，享年82岁</h3>
 <p>前巴西足球运动员球王比利，2022年12月29日在圣保罗死于多器官衰竭，享年82岁。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/79430746.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/79430746.shtml</code></p>
 
 <h3>高尔夫北欧大师赛第二轮赛事成绩</h3>
 <p>连续打出第二轮66杆的英国球手尼克．道赫蒂(Nick Dougherty)、瑞典球手彼得．汉森(Peter Hanson)，以总成绩132，继续于北欧大师赛中排名第一。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/66333221.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/66333221.shtml</code></p>
 
 <h3>2010年世界杯足球赛：日本首场取胜</h3>
 <p>最终日本以1-0取胜，取得继2002年日韩世界杯以来首场胜利。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/57697324.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/57697324.shtml</code></p>
 
 <h3>拉姆赢得第87届美国大师赛冠军 重返世界排名第一</h3>
 <p>西班牙选手乔恩·拉姆在周日的最后一轮比赛中打出了69杆，以12杆之差力压美国选手布洛克斯·科普卡，赢得了第87届美国大师赛冠军。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/57559733.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/57559733.shtml</code></p>
 
 <h3>Alemtsehay Asefa Kasegn 以2：25：55破台北马拉松原记录</h3>
 <p>首届台北马拉松于1986年3月9日举办，并在2019年获得世界田径总会铜标签认证，今（2022年）赛事共计2万名参赛者，原台北马拉松奖金保持的记录，女子组记录为2小时27分36秒，当时发美金6万（约台币184万），今日赛后结果由女子组冠军Alemtsehay Asefa Kasegn 以2小时25分55秒破台北马拉松原记录，拿到了184万奖金。<br>
- | 来源：<code>https://m.xkolmn.cn/ArTicle/details/94979196.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/94979196.shtml</code></p>
 
 <h3>维拉2000万欧买断库蒂尼奥</h3>
 <p>西甲豪门巴塞罗那5月12日宣布，英超球队阿斯顿维拉以2000万欧元的价格买断其外租球员库蒂尼奥，同时巴萨享有未来出售该球员百分之五十的收益。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/74551840.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/74551840.shtml</code></p>
 
 <h3>火箭客场挑战卫冕冠军 姚明26分率队击败绿衫军</h3>
 <p>美国波士顿时间1月7日，休斯顿火箭做客舰队中心挑战卫冕冠军波士顿凯尔特人，在特雷西·麦克格雷迪缺阵的情况下，姚明独挑大梁，帮助球队89-85击败凯尔特人，结束了本赛季球队最长的三连败，凯尔特人则遭遇本赛季第一次三连败。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/22662523.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/22662523.shtml</code></p>
 
 <h3>中国要求霍顿就赛后不当言论道歉 网友反响依旧激烈</h3>
 <p>8月7日，中国泳协以邮件形式正式向澳方抗议，要求澳方就其400米自由泳冠军麦克·霍尔顿称中国运动员孙杨“嗑药骗子”的言论道歉。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/56999409.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/56999409.shtml</code></p>
 
 <h3>2007世界听障游泳锦标赛 新纪录再现 豪雨扰乱第三日行程</h3>
 <p>2007世界听障游泳锦标赛，今日进入第三日赛程，50公尺蛙式、200公尺自由式、4x100混合式接力赛，加上昨日预先进行的中长距离比赛（男子1500公尺自由式、女子800公尺自由式），因此将有八项比赛的优胜者在本日诞生。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/43351040.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/43351040.shtml</code></p>
 
 <h3>高尔夫德意志银行锦标赛第二轮赛事成绩</h3>
 <p>提姆．克拉克(Tim Clark)于德意志银行锦标赛(Deutsche Bank Championship)第二轮赛事里，以负9的62，总成绩负14的128排名第一。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/72775086.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/72775086.shtml</code></p>
 
 <h3>2007年ING台北国际马拉松 花莲掀起暖身赛序幕</h3>
 <p>2007年台北国际马拉松，今年是ING安泰人寿冠名赞助的第四年，除了各分区的慢跑聚会持续进行，在9月1日，也掀起了暖身赛的序幕，地点则选在花莲县的美仑田径场，共吸引三千余人参与，当中参与竞赛的选手就有四百人以上。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/16514264.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/16514264.shtml</code></p>
 
 <h3>2007亚洲职棒大赛 日本留下第三座冠军奖杯</h3>
 <p>在东京巨蛋进行的亚洲职棒大赛决赛，上演第一天就出现的日韩对决戏码，众多地主球迷期望中日龙能在本次比赛中对SK飞龙进行复仇，进而拿下冠军，先发投手部分，SK飞龙是由去年效力La New熊的雷鹏（George Kenneth Rayborn），对决中日龙的山井大介，硬碰硬的情况下，火药味更加浓厚。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/96324604.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/96324604.shtml</code></p>
 
 <h3>波兰羽球公开赛 台湾选手李哲辉／杨博轩男双夺冠</h3>
 <p>2019年波兰羽球公开赛于3月28日至31日在波兰的琴斯托霍瓦举办，台湾有多组选手报名参赛，但仅有李哲辉／杨博轩闯入男子双打决赛，最终两人以21-19、21-16击败世界排名第48的英格兰组合本·莱恩（Ben Lane）／肖恩·文迪（Sean Vendy）夺冠。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/36519777.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/36519777.shtml</code></p>
 
 <h3>温布顿网球女单决赛威廉丝姊妹激战</h3>
 <p>温布顿网球公开赛女单昨晚(5日)进行决赛，由威廉丝姊妹-{zh-hans:维纳斯·威廉姆斯; zh-hant:大威廉丝; zh-hk:云露丝·威廉丝}-和-{zh-hans:塞雷娜·威廉姆斯; zh-hant:小威廉丝; zh-hk:沙莲娜·威廉丝}-对阵，最后-{zh-hans:维纳斯; zh-hant:大威; zh-hk:云露丝}-以直落两盘7:5及6:4，击败-{zh-hans:塞雷娜; zh-hant:小威; zh-hk:沙莲娜}-，第5次夺得温布顿金杯，也是她的网球生涯中第6度成为大满贯冠军。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/20767208.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/20767208.shtml</code></p>
 
 <h3>南华教练曾伟忠辞职转任顾问</h3>
 <p>香港足球班霸南华的新任教练曾伟忠今日召开记者会，宣布因健康原因，辞任南华教练，并转任足球队顾问。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/92172792.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/92172792.shtml</code></p>
 
 <h3>瑞典摔角手不满奥运赛果怒掷奖牌被罚</h3>
 <p>瑞典摔角手阿拉•阿布拉哈米安(Ara Abrahamian)于男子古典式84公斤级摔角的半决赛中，败给意大利摔角手明古兹，他质疑有关裁判的处理不公，令他无法晋级，并扬言要退出比赛。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/68586357.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/68586357.shtml</code></p>
 
 <h3>香港甲足杰志4连胜</h3>
 <p>快意空调甲组足球联赛今日于旺角场两场比赛，头场杰志对四海，尾场康宏晨曦对东方，总入场人数837人，购票人数489人。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/29319186.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/29319186.shtml</code></p>
 
 <h3>事隔三月 李慧诗解释「希望日本赢中国」言论</h3>
 <p>香港退役游泳选手李慧诗在电视台评述杭州亚运会女子4x200米自由泳接力赛中发表了「希望日本赢中国」的言论。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/84160737.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/84160737.shtml</code></p>
 
 <h3>香港银牌足球锦标赛 杰志击败愉园夺冠</h3>
 <p>昨午在旺角大球场举行的银牌决赛，杰志以3比0击败上届亚军愉园夺冠，是该球会继今季的联赛杯后，创会64年来第二个锦标。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/68936179.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/68936179.shtml</code></p>
 
 <h3>黎志伟轮椅攀登320米高厦 因强风未能完成</h3>
 <p>曾在长洲「抢包山」比赛中夺得冠军、因交通意外导致下半身瘫痪的轮椅攀登者黎志伟，昨日（17日）晚上8时挑战坐轮椅攀登300米高的如心广场，并爬到250米高，但因风速过大、体温下降、抽筋，活动不得不终止。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/63005566.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/63005566.shtml</code></p>
 
 <h3>欧洲联赛冠军杯 巴塞隆拿2-0格拉斯哥流浪</h3>
 <p>当中在E组西班牙球队-{zh-hk:巴塞隆拿;zh-hant:巴塞隆纳;zh-hans:巴塞罗那}-以2-0击败了苏格兰球队-{zh-hk:格拉斯哥流浪;zh-hant:格拉斯哥游骑兵;zh-hans:流浪者}-。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/85125596.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/85125596.shtml</code></p>
 
 <h3>高尔夫荷兰公开赛第一轮赛事成绩</h3>
 <p>荷兰公开赛第一轮赛事中，荷兰球手尔夫．穆茨(Rolf Muntz)，打出负6的64，排名第一。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/75115216.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/75115216.shtml</code></p>
 
 <h3>高尔夫荷兰公开赛第二轮赛事成绩</h3>
 <p>荷兰公开赛第二轮赛事中，达伦．克拉克(Darren Clarke)以负6的64，与64的罗伯特．洛高(Robert Rock)及66的亚历山大．诺润(Alexander Noren)，以总成绩负8的132，排名幷列第一。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/17708881.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/17708881.shtml</code></p>
 
 <h3>大连实德主场战胜全北现代 获亚冠两连胜</h3>
 <p>2006亚冠联赛E组第2轮赛事昨天下午打响，在大连实德队在金州体育场以一比零的战绩战争韩国全北现代队，队员邹捷在上半场结束前为大连实德队射入了决定设立的一球。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/34421019.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/34421019.shtml</code></p>
 
 <h3>2007世界杯棒球赛 冠军战将重演六年前戏码</h3>
 <p>2007世界杯棒球赛的冠军资格赛，几乎要重演六年前的相同戏码，古巴对抗日本的戏码仍旧不变，但是对抗美国队的对手，则是换成了荷兰队。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/65829853.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/65829853.shtml</code></p>
 
 <h3>高尔夫英国公开赛第三轮赛事成绩</h3>
 <p>英国公开赛第三轮赛事中，格雷格．诺曼(Greg Norman)以72杆，总成绩正2杆212杆，排名第一。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/73601191.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/73601191.shtml</code></p>
 
 <h3>2007阳明山花季路跑 争议疑云重重</h3>
 <p>今日（4月29日）上午八时在台北市阳明山中山楼，一项由中华定向运动协会主办的「阳明山花季路跑赛」，今年第二次举办。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/56195789.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/56195789.shtml</code></p>
 
 <h3>北京奥组委公布奥运场馆观赛规则</h3>
 <p>北京奥组委昨日(7月14日)公布「奥运场馆观赛规则」，规则巨细靡遗，例如明文严止观看奥运时「裸奔」、也禁止于场内集体穿戴相同或类似服装、严格禁携带旗帜、不能出现政治或宗教活动。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/47019936.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/47019936.shtml</code></p>
 
 <h3>中国放弃参加台北世大运团体赛</h3>
 <p>据报道，中国方面表示，参加世大运团体赛将同国内的全运会时间上有所重叠，另外，还与运动员积分方面的因素有关。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/10706663.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/10706663.shtml</code></p>
 
 <h3>第二十九届奥林匹克运动会于北京正式开幕</h3>
 <p>第二十九届奥林匹克运动会今日于北京正式开幕，开幕式于北京时间晚上8时于俗称「鸟巢」的国家体育场展开，现场坐满9万名观众以及各国元首政要。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/96445326.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/96445326.shtml</code></p>
 
 <h3>英联邦运动会盛大开幕</h3>
 <p>第20届英联邦运动会于苏格兰城市格拉斯哥开幕，本届开幕式充满“格拉斯哥和苏格兰韵味”。<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/99943237.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/99943237.shtml</code></p>
 
 <h3>北京奥运主新闻中心上网有限制</h3>
 <p>中国曾承诺于北京奥运期间，记者能够完全自由地上网，但是北京主新闻中心的外国记者抱怨说，指不能进入许多被认为敏感的网站。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/13693418.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/13693418.shtml</code></p>
 
 <h3>湖人轻取76人避免两连败</h3>
 <p>湖人队的科比获得全场最高的32分，并贡献了6个篮板和4次助攻，最终带领球队以114:102战胜76人，成功避免两连败。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/79227031.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/79227031.shtml</code></p>
 
 <h3>高尔夫巴克莱精英赛第三轮赛事成绩</h3>
 <p>巴克莱精英赛(Barclays Classic)第三轮赛事中，凯文．斯垂曼(Kevin Streelman)打出负3的68，以总成绩负8的205，排名第一。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/69159278.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/69159278.shtml</code></p>
 
 <h3>2007世界杯棒球赛 台中掀起战火 大台北接续登场</h3>
 <p>2007年第37届世界杯棒球赛，昨（6）日虽然举行了开幕式，但因为天候不佳的关系，今（7）日在台中洲际棒球场举行的「巴拿马vs西班牙」之战，反而成为大会的开幕战，而原先大会内定的「中华vs义大利」开幕战，则改至下周进行。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/12969260.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/12969260.shtml</code></p>
 
 <h3>刘翔预赛因伤退赛 告别北京奥运会</h3>
 <p>这样，备受关注的刘翔告别了北京奥运会的赛场。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/92401570.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/92401570.shtml</code></p>
 
 <h3>高尔夫职业锦标赛第一轮赛事成绩</h3>
 <p>罗伯特．卡尔森(Robert Karlsson)与米哈辛(Jeev Milkha Singh)于高尔夫职业锦标赛(PGA Championship)第一轮赛事里，一同打出68后，暂时排名并列第一。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/24314515.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/24314515.shtml</code></p>
 
 <h3>中国棒球队逆转中华台北棒球队 遭台湾网友痛批为国耻</h3>
 <p>北京奥运棒球预赛出现让专家跌破眼镜的结果，中国棒球队在「只求一胜」的目标下，竟在今（15）日对上中华台北队的比赛中，以8：7拿下胜利，这不但是中国队首度在国际赛事中，将中华台北队击败，巧合的是，这也是后援投手阳建福登板救援的三连败，前两次分别是在雅典奥运中，被义大利打出再见全垒打，以及被日本队打出再见高飞牺牲打。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/78102002.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/78102002.shtml</code></p>
 
 <h3>新加坡马拉松甫落幕 台湾、中国暂居东北亚男女组首位</h3>
 <p>而在台湾媒体瞩目的东北亚组，继邱建兴在奈诺比马拉松比赛中，拿下该组冠军后，蒋介文也在该项比赛中，以2小时32分46秒的成绩，拿下第一，使得男子队在该组暂时领先日本队；反观女子组部分，在两岸三地（中、港、台）选手与韩国选手的参赛下，四抢一的分组团队冠军竞争更加激烈，目前，经过奈诺比与新加坡两场的比赛后，中国、香港、台湾分居女子组的前三。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/23993366.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/23993366.shtml</code></p>
 
 <h3>百威胜胜出爱彼表女皇杯</h3>
 <p>而另一场赛事爱彼表女皇杯只得十头马出赛，大热门是前年冠军爆冷，次热门是杜拜免税店杯亚军百威胜。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/37751773.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/37751773.shtml</code></p>
 
 <h3>菅义伟线上参加联合国大会，表示日本下定决心开东京奥运会</h3>
 <p>日本新任首相菅义伟9月25日线上参加联合国大会并发表演讲。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/28617480.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/28617480.shtml</code></p>
 
 <h3>高尔夫德意志银行锦标赛第一轮赛事成绩</h3>
 <p>德意志银行锦标赛第一轮赛事里，迈克．维尔(Mike Weir)平了球场纪录的负10的61，排名第一。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/98063198.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/98063198.shtml</code></p>
 
 <h3>快船戴维斯澄清欲重回勇士的传闻</h3>
 <p>不久前，金州勇士球员斯蒂芬·杰克逊传出大胡子贝伦·戴维斯欲离开新东家，重回勇士的传闻。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/51582485.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/51582485.shtml</code></p>
 
 <h3>深圳市足球俱乐部解散</h3>
 <p>因严重的历史债务难以为继，深圳市足球俱乐部发布声明宣布球队正式解散。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/77175472.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/77175472.shtml</code></p>
 
 <h3>奥运马术保安员集体离职当局否认</h3>
 <p>有传香港奥运马术工公有大批比赛场地外判保安员，因不满工作条件恶劣，酝酿集体离职。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/82514666.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/82514666.shtml</code></p>
 
 <h3>西班牙四夺欧国杯</h3>
 <p>西班牙在决赛以2-1战胜英格兰第四次夺冠，成为欧国杯史上最成功球队。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/58198581.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/58198581.shtml</code></p>
 
 <h2>五、体育赛事新闻精选</h2>
 <h3>香港篮球圣地「九伊」将拆卸重建</h3>
 <p>香港旺角的麦花臣室内运动场，日前在进行「最后一战」后，将会拆卸重建，直至四年后新九伊落成。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/88601409.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/88601409.shtml</code></p>
 
 <h3>2007年ING台北马拉松 公益路跑募集慈善基金 校际接力展现学童潜力</h3>
 <p>主办的台北市政府，邀请了市府团队、听障奥运选手、视障马拉松选手、台湾马拉松界名将、与台湾各地的ING路跑俱乐部菁英选手共18人，组成「ING安泰爱跑队」、「市府路跑好手队」、「马拉松飞毛腿队」等三队，透过「名人公益路跑」接力赛，为「台湾罕见疾病基金会」、「2009台北听奥筹委会」、「中华视障路跑运动协会」等单位，进行募款。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/56172664.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/56172664.shtml</code></p>
 
 <h3>2007世界听障游泳锦标赛 地主选手崛起 两纪录再创新</h3>
 <p>2007年世界听障游泳锦标赛，今日进入倒数阶段，有鉴于昨日因豪大雨而打乱比赛的情形，主办单位特别将所有决赛场次提前一小时举行，另外，也在早上的预赛结束后，为昨日决赛获得优胜的选手进行表扬；在本日的比赛中，200公尺个人混合式、50公尺仰式、200公尺蛙式、100公尺自由式，共会出现八位优胜选手，地主观众则预期曾纾宁将为地主队在女子50公尺仰式比赛中，留下一面金牌。<br>
- | 来源：<code>https://news.yrnelt.cn/ArTicle/details/45852251.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/45852251.shtml</code></p>
 
 <h3>2009年澳洲网球公开赛 小威力压俄罗斯球手夺冠</h3>
 <p>2009年澳洲网球公开赛在澳洲时间星期六进行了女单决赛。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/67793481.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/67793481.shtml</code></p>
 
 <h3>别克公开赛第三轮赛事成绩</h3>
 <p>瑞典球手丹尼尔．乔普拉(Daniel Chopra)于别克公开赛第三轮赛事中，以低于标准杆4杆的68杆，总成绩低于标准杆16杆的200杆，排名第一。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/16439554.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/16439554.shtml</code></p>
 
 <h3>2008年台北国际听障运动邀请赛 第一面金牌进入桌球项目</h3>
 <p>2009年夏季听障奥运的大型会前赛─「2008年台北国际听障运动邀请赛」，今（6）日在台北市正式进行，首日先开打的项目，是在台北小巨蛋进行的桌球，以及迎风河滨公园举行的足球。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/16541943.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/16541943.shtml</code></p>
 
 <h3>71岁葡萄牙总统下海救人成热话</h3>
 <p>回到陆地上，葡萄牙总统解释说：「由于水流太强，无法转身、回身或游泳，吞了很多水。」<br>
- | 来源：<code>https://m.yrnelt.cn/ArTicle/details/43491813.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/43491813.shtml</code></p>
 
 <h3>中国央视复播美职篮比赛</h3>
 <p>美国娱乐与体育节目电视网认为，央视复播比赛证明美职篮与中国的关系迈向改善的重要步伐。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/25641275.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/25641275.shtml</code></p>
 
 <h3>阿根廷蝉联美洲杯</h3>
 <p>阿根廷在美洲国家杯决赛经历加时，1-0绝杀赢哥伦比亚卫冕。<br>
- | 来源：<code>https://news.xyockf.cn/ArTicle/details/56158150.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/56158150.shtml</code></p>
 
 <h3>温布顿网球赛青少年男双决赛台湾组合与澳洲选手决胜</h3>
 <p>温布顿网球公开赛男子双打决赛，中华台北组合杨宗桦和谢政鹏与澳洲组合汤米可与瑞德对阵，最后杨宗桦和谢政鹏以局数6比4、2比6、12比10击败澳洲组合，夺得温布顿网球公开赛青少年男子双打冠军。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/84820057.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/84820057.shtml</code></p>
 
 <h3>日本队在卡塔尔世界杯中击败德国队</h3>
 <p>23日晚，日本队与德国队在卡塔尔世界杯中遭遇。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/28292955.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/28292955.shtml</code></p>
 
 <h3>高尔夫苏格兰公开赛第二轮赛事成绩</h3>
 <p>苏格兰公开赛(The Scottish Open)第二轮赛事中，安吉尔．卡布莱拉(Angel Cabrera)打出68杆，以总成绩负9杆的133杆，排名第一。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/53308221.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/53308221.shtml</code></p>
 
 <h3>高尔夫奔驰锦标赛第一轮赛事成绩</h3>
 <p>奔驰锦标赛(Mercedes-Benz Championship)第一轮赛事里，理查德．芬奇(Richard Finch)和基恩．弗兰克伊斯．卢克奎恩(Jean-Francois Lucquin)以负6的66，排名并列第一。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/28574678.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/28574678.shtml</code></p>
 
 <h3>香港足球队「天水围飞马」成立今日正式开操</h3>
 <p>香港甲组足球队「天水围飞马」成立，今日于天水围球场正式开操，由于天水围飞马有多名前南华主将，因此被称为「南华二队」。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/66714598.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/66714598.shtml</code></p>
 
 <h3>日本超马好手关家良一 获入选东吴超马名人堂</h3>
 <p>在第七届东吴国际超级马拉松即将于23日重新恢复之际，地主东吴大学为了表彰资深日本超级马拉松选手关家良一的优异表现，特别选择今（23）日的「赛前记者会」中，为他进行入主名人堂仪式，并颁赠感谢状及制作脚印。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/33347432.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/33347432.shtml</code></p>
 
 <h3>高尔夫巴克莱精英赛第四轮赛事成绩</h3>
 <p>维杰．辛格(Vijay Singh)赢得巴克莱精英赛(Barclays Classic)的冠军。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/89739876.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/89739876.shtml</code></p>
 
 <h3>超纪录6秒，张琳成为中国男泳世界冠军第一人</h3>
 <p>在男子800米自由泳的决赛中，中国选手张琳以7分32秒12领先世界纪录将近7秒的优异成绩站到了最高的领奖台。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/11751741.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/11751741.shtml</code></p>
 
 <h3>第六届亚沙会推迟至明年4月举办</h3>
 <p>亚洲奥委会官网8月10日宣布，由于新型冠状病毒肺炎在全球范围内流行，2020年8月10日，亚奥理事会、中国奥委会和三亚亚沙会组委会达成协议，将2020年第六届亚洲沙滩运动会推迟至2021年4月2日至10日举行。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/16010919.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/16010919.shtml</code></p>
 
 <h3>一河南籍男子骑行至可可西里无人区时身亡</h3>
 <p>李某某曾单人单车进入可可西里无人区，自此失联超过一个半月。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/85218714.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/85218714.shtml</code></p>
 
 <h3>国际棒总取消委内瑞拉承办世界青少棒赛</h3>
 <p>第十三届世界青少棒锦标赛原本预订于本月17日，于委内瑞拉的卡拉卡斯和塔奇拉洲举行，但根据中华民国棒球协会(以下简称棒协)秘书长林宗成于15日下午对外表示，国际棒球总会(IBAF)已于8月14日晚间9时，取消委内瑞拉承办比赛的权力，并且发函各参赛会员国。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/62992400.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/62992400.shtml</code></p>
 
 <h3>2008年Nike台北路跑 改制后新上路</h3>
 <p>前身「Nike休闲路跑」的「Nike台北路跑」，今日上午在台北市政府广场正式起跑，除了原有的五公里休闲组，为了要吸引专业跑者的参与，今年特别新增九公里竞赛组，其路线与竞赛的方式，则比照ING台北国际马拉松的模式，当中也包含首度启用的晶片计时系统。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/73761875.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/73761875.shtml</code></p>
 
 <h3>AT&amp;T全国锦标赛第一轮赛事成绩</h3>
 <p>美国高尔夫球选手史蒂夫．莫尼诺(Steve Marino)在AT&amp;T全国锦标赛的第一输赛事中，共拿到5个小鸟，以低于标准杆5杆领先，排名第一。<br>
- | 来源：<code>https://m.yisdzc.cn/ArTicle/details/40725787.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/40725787.shtml</code></p>
 
 <h3>米迪亚棒球队 遭到中华职棒大联盟宣布除名</h3>
 <p>中华职棒的季后赛已然开打，但先前爆发出的「米迪亚签赌案」，却严重破坏了中华职棒的形象，而在今（23）日，中华职棒大联盟召开常务理事会，并正式宣布，将涉赌情节严重的米迪亚暴龙队，正式除名。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/74405515.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/74405515.shtml</code></p>
 
 <h3>国际象棋世界冠军决斗 托帕洛夫取第八局</h3>
 <p>正在卡尔梅克共和国首都埃利斯塔举行的国际象棋世界冠军统一决斗, 第八局中。<br>
- | 来源：<code>https://blog.xgieut.cn/ArTicle/details/55046398.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/55046398.shtml</code></p>
 
 <h3>卡姆力克一统国际象棋江湖</h3>
 <p>卡尔梅克共和国首都埃利斯塔举行的国际象棋世界冠军统一决斗今日刚结束. 在四局快棋中, 卡姆力克以二胜, 一和, 一负 (和, 胜, 负, 胜)击败托帕洛夫,。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/44724229.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/44724229.shtml</code></p>
 
 <h3>高尔夫英国公开赛第一轮赛事成绩</h3>
 <p>英国公开赛第一轮赛事中，洛克．梅迪亚特(Rocco Mediate)、格莱姆．麦克道尔(Graeme McDowell)和罗伯特．艾伦比(Robert Allenby)均打出69杆，以负1杆排名幷列第一。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/98511209.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/98511209.shtml</code></p>
 
 <h3>欧洲联赛冠军杯 利物浦8-0大胜比锡达斯</h3>
 <p>-{zh-hk:2007-08年欧洲联赛冠军杯;zh-hant:2007-08年欧洲冠军联赛;zh-hans:2007-08年欧洲冠军联赛}-在欧洲时间星期二晚上进行了八场第四轮比赛，在A组英格兰球队利物浦在主场以8比0大胜土耳其球队-{zh-hans:贝西克塔斯;zh-hk:比锡达斯;zh-hant:贝克西泽斯}-，除了报回之前负于1-2之外，还为利物浦取得重要3分，保持首名出线第二圈希望，是场比赛，以色列球员-{zh-hk:约西·班拿约;zh-hant:约西·贝纳永;zh-hans:约西·贝纳永}-该场比赛大演帽子戏法。<br>
- | 来源：<code>https://news.xgieut.cn/ArTicle/details/40432646.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/40432646.shtml</code></p>
 
 <h3>香港甲组足球联赛飞马成立后首战对杰志</h3>
 <p>香港甲组足球联赛昨日(9月7日)于旺角场上映两场精彩戏码，头场东方对愉园，尾场天水围飞马对杰志，现场气温超过摄氏34度，但仍吸引2,400名球迷入场。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/42978466.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/42978466.shtml</code></p>
 
 <h3>2008年台北马拉松 肯亚跑者笑傲赛场 为ING赞助谱终曲</h3>
 <p>在ING安泰人寿结束赞助后，台北马拉松也将于明年（2009年）正式转手富邦金控，并稍微调整。<br>
- | 来源：<code>https://m.xyockf.cn/ArTicle/details/14823819.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/14823819.shtml</code></p>
 
 <h3>里约奥运前夕 巴西药检实验室的注册资格被暂停</h3>
 <p>在巴西奥运即将开幕之际，世界反运动禁药机构（WADA）宣布暂停巴西里约的药检实验室一切药检工作，原因在于该实验室未达国际标准。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/79981042.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/79981042.shtml</code></p>
 
 <h3>2008年台北101国际登高赛 战力大洗牌 台湾留下两座冠军</h3>
 <p>2008年台北101国际登高赛，打破了往年在冬季举行的模式，首度在上半年尾进行，本届赛会除了中华电信的光纤同步传输外，中华民国路跑协会也特别号召了各领域的志工，来投入楼层服务，并启用「冠军晶片」计时系统，希望能打造比赛的高品质。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/64395765.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/64395765.shtml</code></p>
 
 <h3>俄罗斯网球选手舒拉宝娃因伤退出京奥</h3>
 <p>俄罗斯网球选手，世界排名第三的-{zh-hans:莎拉波娃; zh-hant:莎拉波娃; zh-hk:舒拉宝娃;}-，于其官方网站宣布，她因肩伤将缺席北京奥运会。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/75541307.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/75541307.shtml</code></p>
 
 <h3>2007台北体育用品展 科技化与健康化的结合</h3>
 <p>由中华民国对外贸易发展协会主办的「台北国际体育用品展」，今年已经进入第三十四届，本次展览有304家厂商参展，使用1560个摊位，分别在台北世界贸易中心展览一馆的一楼与二楼进行展出，除了健身器材区是本展览中，规模最大的区域以外，另外，主办单位也和中国展览公司合作，新增设「海峡两岸展区」，借此机会让各国买主与中国的体育用品厂商。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/44269428.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/44269428.shtml</code></p>
 
 <h3>2008国际自由车环台赛 台中站大转变</h3>
 <p>2008年国际自由车环台赛，今日展开第四站的比赛，继去年在台中洲际棒球场首度进行台中站的比赛，获得好评后，今年，为了因应在洲际棒球场进行的奥运最终资格赛，台中站移师文心路与向上路交界的文心森林公园，进行比赛，正因为比赛地点邻近大新国小的关系，也吸引不少老师与小学生，一同亲临现场观赛。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/88512390.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/88512390.shtml</code></p>
 
 <h3>2007世界杯棒球赛 美国终结古巴十连霸美梦</h3>
 <p>虽然古巴队在五局下，以连续三支的安打换回两分，但在小联盟后援牛棚的强力压制下，古巴队最终以3：6败给美国队，不但终止了古巴队的十连霸美梦，美国队更因为首度在世界杯中击败古巴，进而夺下睽违33年的冠军奖杯，而他们上回夺下冠军是在1974年，但当时古巴队并未参赛。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/99882563.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/99882563.shtml</code></p>
 
 <h3>马拉松世界纪录保持者基普图姆逝世</h3>
 <p>马拉松世界纪录保持者基普图姆于昨日因车祸逝世，年仅24岁。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/94081065.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/94081065.shtml</code></p>
 
 <h3>2008年澳网男单决赛 塞尔维亚球手首夺大满贯</h3>
 <p>决赛的球员分别是第三种籽塞尔维亚球手-{zh-hk:诺瓦克祖高域;zh-hant:诺瓦克·德约科维奇;zh-hans:诺瓦克·德约科维奇}-以及法国非种子球手-{zh-hans:特松加;zh-hant:特松加;zh-hk泰桑高}-。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/81618426.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/81618426.shtml</code></p>
 
 <h3>“上帝之手”马拉多纳逝世，享年60岁</h3>
 <p>马拉多纳曾在1986年领军阿根廷国家队拿下世界杯冠军，他充满争议的“上帝之手”，更成为足坛永远的经典讨论时刻。<br>
- | 来源：<code>https://blog.yrnelt.cn/ArTicle/details/74295037.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/74295037.shtml</code></p>
 
 <h3>中国泳手药检阳性仍参加东京奥运引质疑</h3>
 <p>有中国泳手禁药呈阳性下仍获准参加东京奥运引发质疑，中方重申是食物污染导致，世界反禁药机构任命独立检查官调查机构的处理方式。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/54740194.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/54740194.shtml</code></p>
 
 <h3>香港甲足国庆日谢菲联首胜</h3>
 <p>快意空调甲组足球联赛昨日国庆日于旺角场举行两场比赛。<br>
- | 来源：<code>https://www.yisdzc.cn/ArTicle/details/49805420.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/49805420.shtml</code></p>
 
 <h3>2010年世界杯足球赛决赛：西班牙加时击败荷兰首次夺杯</h3>
 <p>他们在决赛凭加时的入球，以1-0击败荷兰，西班牙首次晋身决赛就能捧杯，他们打破近年赢得欧洲国家杯后未能胜出世界杯的诅咒。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/31375439.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/31375439.shtml</code></p>
 
 <h3>2007自行车环台赛 最后一站 惊奇收尾</h3>
 <p>主办单位也宣布，第二十届自由车环台赛也将在2008年3月9日─3月15日开战，而由于第二十一届台北国际自行车展览会将移师台北南港展览馆，因此台北最后一站的路线是否将进行变更，仍将有重大变数。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/92044515.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/92044515.shtml</code></p>
 
 <h3>高尔夫苏格兰公开赛第四轮赛事成绩</h3>
 <p>格莱姆．麦克道尔(Graeme McDowell)，赢得苏格兰公开赛的冠军。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/49673516.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/49673516.shtml</code></p>
 
 <h3>2010年世界杯足球赛：西葡大战西班牙险胜晋级</h3>
 <p>2010年世界杯足球赛十六强最后一场比赛西班牙对葡萄牙，在开普敦绿点球场举行，西班牙以1-0击败葡萄牙。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/66946637.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/66946637.shtml</code></p>
 
 <h3>香港甲足晨曦对淦源、谢菲联对公民</h3>
 <p>快意空调甲组足球联赛昨日于旺角场双料娱乐，头场康宏晨曦对淦源，尾场谢菲联对公民，总入场人数404人，购票人数218人。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/68824495.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/68824495.shtml</code></p>
 
 <h3>2009年香港国际赛事结束 香港及外地代表各胜两场</h3>
 <p>香港国际赛事自2006年起香港短途锦标及香港一哩锦标均由香港代表取胜，至于香港瓶及香港杯均由外国代表胜出，包括英国、法国、阿联酋及南非。<br>
- | 来源：<code>https://m.vmuyif.cn/ArTicle/details/22455411.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/22455411.shtml</code></p>
 
 <h3>2010年世界杯足球赛：出炉欧洲国家杯冠军遭瑞士突击全失三分</h3>
 <p>2010年世界杯足球赛紧接洪都拉斯对智利赛事后，夺标热门西班牙在德班德班球场迎战另一队欧洲球队瑞士，在德班球场举行。<br>
- | 来源：<code>https://news.xkolmn.cn/ArTicle/details/75522189.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/75522189.shtml</code></p>
 
 <h3>2008年台北马拉松 儿童组险些无法开赛 媒体抢拍爆口角</h3>
 <p>2008年ING台北马拉松在今（21）日上午开跑，紧接在竞赛组之后的休闲组与儿童组，热闹的程度不输给在赛场上持续力争上游的竞赛选手。<br>
- | 来源：<code>https://www.xyockf.cn/ArTicle/details/88349259.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/88349259.shtml</code></p>
 
 <h3>体育仲裁法庭为瑞典摔角手怒掷奖牌申冤</h3>
 <p>国际体育仲裁法庭(CAS)裁定国际摔联(FILA)的裁判犯错，他们认为阿布拉哈米安怒掷奖牌有理。<br>
- | 来源：<code>https://m.xgieut.cn/ArTicle/details/76897974.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/76897974.shtml</code></p>
 
 <h3>温布顿网球赛男单决赛拿度与费达拿你死我活</h3>
 <p>温布顿网球公开赛男单决赛，瑞士选手-{zh-hans:罗杰·费德勒; zh-hant:罗杰·费德勒; zh-hk:费达拿}-(Roger Federer)再次和宿敌西班牙选手-{zh-hans:拉斐尔·纳达尔; zh-hant:拉斐尔·纳达尔; zh-hk:拉斐尔·拿度}-(Rafa)对阵，最后 Rafa 以盘数3比2胜出，首度夺得温网赛冠军。<br>
- | 来源：<code>https://blog.vmuyif.cn/ArTicle/details/29276956.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/29276956.shtml</code></p>
 
 <h3>2008年三星活力路跑 台北站主打环保牌</h3>
 <p>相较于早前的奥地利与瑞士两站，台北站的周边活动，虽然较欧洲地区略少，主力集中于主舞台表演，但家族动员的力量，仍可见一斑，也展现了三星活力路跑在台北的优良形象。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/79827554.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/79827554.shtml</code></p>
 
 <h3>2020年东京奥运会今日正式开幕</h3>
 <p>23时13分，担任东京奥运会名誉总裁的天皇德仁宣布开幕。<br>
- | 来源：<code>https://www.xgieut.cn/ArTicle/details/14050498.shtml</code></p>
+ | 来源：<code>https://www.blog.xgieut.cn/ArTicle/details/14050498.shtml</code></p>
 
 <h3>卡塔尔发布新国徽 展现该国传统历史文化</h3>
 <p>新国徽由阿拉伯剑、棕榈、大海、单桅帆船四要素组成，展现了卡塔尔的传统历史文化。<br>
- | 来源：<code>https://www.yrnelt.cn/ArTicle/details/65703949.shtml</code></p>
+ | 来源：<code>https://www.blog.yrnelt.cn/ArTicle/details/65703949.shtml</code></p>
 
 <h3>2010年世界杯足球赛：英格兰犯下低级失误被美国迫和</h3>
 <p>2010年世界杯足球赛6月12日夜场赛事是C组英格兰对美国，在勒斯滕堡皇家班加夫肯球场举行。<br>
- | 来源：<code>https://blog.xkolmn.cn/ArTicle/details/15722426.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/15722426.shtml</code></p>
 
 <h3>曼联淘汰德比郡 进入足总杯八强</h3>
 <p>今晨，作为英超豪门的曼联队在普莱德公园球场以4比1淘汰比他们低一个级别的德比郡队，轻松打入八强，获得了英格兰足总杯赛第五轮比赛的胜利。<br>
- | 来源：<code>https://blog.yisdzc.cn/ArTicle/details/90077814.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/90077814.shtml</code></p>
 
 <h3>毕比主场三分绝杀 火箭客场100-103憾负老鹰</h3>
 <p>鹰队控球，距比赛结束还剩1.5秒，毕比三分命中，将比分定格在103-100，主场老鹰险胜火箭。<br>
- | 来源：<code>https://news.yisdzc.cn/ArTicle/details/40843785.shtml</code></p>
+ | 来源：<code>https://www.blog.yisdzc.cn/ArTicle/details/40843785.shtml</code></p>
 
 <h3>2008 Nike+ Human Race 全球第一次 台湾开先锋</h3>
 <p>由-{zh-hans:耐克;zh-hant:耐吉;zh-hk:Nike}-在全球25个城市主导的「-{zh-hans:Nike+赛跑全人类;zh-hant:Nike+ Human Race;zh-hk:Nike+ Human Race}-」，昨（31）日正式进行，由于时差的关系，台湾台北市成为全球第一个开跑的参与城市。<br>
- | 来源：<code>https://blog.xyockf.cn/ArTicle/details/52244011.shtml</code></p>
+ | 来源：<code>https://www.blog.xyockf.cn/ArTicle/details/52244011.shtml</code></p>
 
 <h3>旅行者哈特福特锦标赛第四轮赛事成绩</h3>
 <p>美国球手斯图尔特．辛克(Stewart Cink)以1杆的领先，赢得旅行者哈特福特锦标赛(Travelers Championship)的冠军，结束四年没有得到冠军的生涯，得到个人第五个的美巡赛冠军。<br>
- | 来源：<code>https://www.vmuyif.cn/ArTicle/details/31129670.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/31129670.shtml</code></p>
 
 <h3>斯诺克中青赛周三开赛，梁文博现身场馆</h3>
 <p>曾获世界青年锦标赛冠军、英国锦标赛亚军并进入世界排名前十六的著名斯诺克运动员、此前因假球案被判终身禁赛的梁文博现身比赛场馆，参与训练和指导。<br>
- | 来源：<code>https://www.xkolmn.cn/ArTicle/details/97965644.shtml</code></p>
+ | 来源：<code>https://www.blog.xkolmn.cn/ArTicle/details/97965644.shtml</code></p>
 
 <h3>中国国家足球队战胜韩国国家足球队</h3>
 <p>中国国家足球队在东京举行的东亚足球锦标赛中以3：0的比分战胜韩国国家足球队，结束对韩国队32年不胜历史。<br>
- | 来源：<code>https://news.vmuyif.cn/ArTicle/details/64282243.shtml</code></p>
+ | 来源：<code>https://www.blog.vmuyif.cn/ArTicle/details/64282243.shtml</code></p>
 
 <hr>
 <h2>素材出处与说明</h2>
